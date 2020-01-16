@@ -1,7 +1,7 @@
 # Daily English Dictation #1~#399
 
 
- ## Dictation 1 
+ ## Day 1 
 
 > From `AP News`, The Associated Press
 
@@ -16,7 +16,7 @@ Mother Teresa, who received a Nobel Peace Prize for her work on behalf of the po
   - years~old
   - `on behalf of`
 
-## Dictation 2
+## Day 2
 
 Jerry, what time do you have. 
 I have 5 o'clock. 
@@ -34,7 +34,7 @@ I have 5 o'clock.
 > - 7 Hs
 >   - He/His/Her/Him/Had/Has/Have
 
-## Dictation 3
+## Day 3
 
 There are three things I have learnt never to discus with people: religion, politics and Great Pumpkin!
 
@@ -44,18 +44,29 @@ There are three things I have learnt never to discus with people: religion, poli
   - There~are、I~have
   - Great(\t)~Pumpkin
 
-## Dictation 4
+## Day 4
 
-> pursuit happiness - Will Smith
+Don’t ever let somebody tell you, you can’t do something.
 
-Don’t ever let somebody tell you, you can’t do something.e
+>pursuit happiness - Will Smith
+
+
 
 ### 讲解
 
 
 
-## Dictation 5
+
+
+## Day 5
 
 
 
 lofty probably impossible goal.
+
+## Day 6
+
+
+
+## Day7
+
