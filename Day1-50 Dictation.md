@@ -79,7 +79,89 @@ Strong:S, N, L | Weak:d, t, th
 
 ## Day 6
 
+- dictation：  
 
+  The secret of life is just live at every moment
 
-## Day7
+- answer
 
+  The secret of life is just to live every moment.
+
+  
+
+- Just --> "juss"
+
+- To --> t'
+
+- Live~every
+
+## Day7 business
+
+- dictation
+
+  Anther road trader has cause the bank billions
+
+- answer
+
+  Anther **rogue** trader has cost a bank billions.
+
+  
+
+- Anther~rogue
+
+  - 类似 part-time (连音，把后面的单词发音完整）
+
+- inside information
+
+- Rouge
+
+  - Dishonest/ a **scoundrel / thrick you out of your money/**
+
+- cost
+
+## Day 8 piercing
+
+- dictation
+
+  greman road buclke , he's the man with most piecings, he's got 453.
+
+- Answer
+
+  German, Rolf Buchholz, is the man with the most piercings, he's got 453!
+
+  
+
+- is the - > is zuh
+
+- with (th)~(th)the (读后面的th就行)
+
+- most~piercings (\t)
+
+- he's ~
+
+- 453: four hundred fifty three
+
+## Day 9 satellite
+
+> AP news
+
+- a s ws car to space 20 ys ago, abort the , but no body kn where the debris will hit.
+  - A satellite that was carried to space 20 years ago, is about to fall to Earth, but nobody konws where the debris will hit.
+- satellite (t) ~ (th) that [keep the 2nd one]
+- is~about~to fall to Eearth
+
+## Day 10
+
+- dictation：
+
+  It's a lofty, possibly impossible goal.
+
+- answer
+
+  It's a lofty, **probably** impossible goal.
+
+## Day 12 baseball
+
+New York swept the Tampa Bay Roy's by identical 4-2 scores in a day-night doubleheader Wednesday
+
+- identical ~(t不发音)
