@@ -1,4 +1,4 @@
-# Daily English Dictation #1~#399
+# Daily English Dictation #1~#20
 
 
  ## Day 1 
@@ -155,19 +155,27 @@ It's a lofty, **probably** impossible goal.
 
 ### 讲解
 
-
-
-## Day 11
-
-
+- loft
+  - really really high
 
 
 
-## Day 12 baseball
+## Day 11 baseball
 
-New York swept the Tampa Bay Roy's by identical 4-2 scores in a day-night doubleheader Wednesday
+New York swept the Tampa Bay Ray's by identical 4-2 scores in a day-night doubleheader Wednesday
+
+- swept~the
+  - sweep the series（横扫了整个系列赛）
 
 - identical ~(t不发音)
+- doubleheader
+  - 2 games in one day
+- Wednesday
+  - n cancel d，即d不发音
+
+
+
+## Day 12
 
 
 
@@ -202,9 +210,3 @@ New York swept the Tampa Bay Roy's by identical 4-2 scores in a day-night double
 ## Day 20
 
 
-
-## Day 21
-
-
-
-## Day 22
