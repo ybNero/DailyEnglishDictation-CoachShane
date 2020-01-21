@@ -1,13 +1,13 @@
 # Daily English Dictation #1~#20
 
 
- ## Day 1 
+ # Day 1 
 
 > From `AP News`, The Associated Press
 
 Mother Teresa, who received a Nobel Peace Prize for her work on behalf of the poor, dies in CalcuHe, India——she was 87 years old.
 
-### 讲解
+## 讲解
 
 - 连读/发音/短语
   - received~a
@@ -16,12 +16,12 @@ Mother Teresa, who received a Nobel Peace Prize for her work on behalf of the po
   - years~old
   - `on behalf of`
 
-## Day 2
+# Day 2
 
 Jerry, what time do you have. 
 I have 5 o'clock. 
 
-### 讲解
+## 讲解
 
 - 连读/发音
 
@@ -34,11 +34,11 @@ I have 5 o'clock.
 > - 7 Hs
 >   - He/His/Her/Him/Had/Has/Have
 
-## Day 3
+# Day 3
 
 There are three things I have learnt never to discus with people: religion, politics and Great Pumpkin!
 
-### 讲解
+## 讲解
 
 - 连读/发音
   - There~are、I~have
@@ -46,13 +46,13 @@ There are three things I have learnt never to discus with people: religion, poli
 
 
 
-## Day 4
+# Day 4
 
 Don’t ever let somebody tell you, you can’t do something.
 
 >pursuit happiness - Will Smith
 
-### 讲解
+## 讲解
 
 Strong:S, N, L | Weak:d, t, th
 
@@ -62,12 +62,12 @@ Strong:S, N, L | Weak:d, t, th
 
 
 
-## Day 5 Bubblegum
+# Day 5 Bubblegum
 
 - I have come here to chu bubble gum and kick ass and **all other** bubble gums.
   - I have come here to **chew** bubblegum and kick ass...and I'm all out of bubblegum!
 
-### 讲解
+## 讲解
 
 - 'To' can be sound like ' to...tan...tux...t'...dah...duh...d' '
 - And~I'm~all~out~of
@@ -78,13 +78,13 @@ Strong:S, N, L | Weak:d, t, th
 
 
 
-## Day 6
+# Day 6
 
 The secret of life is just live at every moment
 
 The secret of life is just **to live every** moment.
 
-### 讲解
+## 讲解
 
 - Just --> "juss"
 - just~to
@@ -93,13 +93,13 @@ The secret of life is just **to live every** moment.
 
 
 
-## Day7 business
+# Day 7 business
 
 Anther road trader has cause the bank billions
 
 Anther **rogue** trader has cost a bank billions.
 
-### 讲解
+## 讲解
 
 - Anther~rogue
 
@@ -112,13 +112,13 @@ Anther **rogue** trader has cost a bank billions.
 
 
 
-## Day 8 piercing
+# Day 8 piercing
 
 greman road buclke , he's the man with most piecings, he's got 453.
 
 German, Rolf Buchholz, is the man with the most piercings, he's got 453!
 
-### 讲解
+## 讲解
 
 - is the - > is zuh
 - with (th)~(th)the (读后面的th就行)
@@ -128,7 +128,7 @@ German, Rolf Buchholz, is the man with the most piercings, he's got 453!
 
 
 
-## Day 9 satellite
+# Day 9 satellite
 
 > AP news
 
@@ -136,7 +136,7 @@ a s ws car to space 20 ys ago, abort the , but no body kn where the debris will 
 
 A satellite that was carried to space **aboard** the shuttle Discovery 20 years ago, is about to fall to Earth, but nobody konws where the debris will hit.
 
-### 讲解
+## 讲解
 
 - satellite / weather ~ / communication ~ / astronomical telescope ~ 
 - satellite (t) ~ (th) that [keep the 2nd one]
@@ -147,22 +147,24 @@ A satellite that was carried to space **aboard** the shuttle Discovery 20 years 
 
 
 
-## Day 10
+# Day 10
 
 It's a lofty, possibly impossible goal.
 
 It's a lofty, **probably** impossible goal.
 
-### 讲解
+## 讲解
 
 - loft
   - really really high
 
 
 
-## Day 11 baseball
+# Day 11 baseball
 
-New York swept the Tampa Bay Ray's by identical 4-2 scores in a day-night doubleheader Wednesday
+New York swept the Tampa Bay Ray's by identical 4-2 scores in a day-night doubleheader Wednesday.
+
+## 讲解
 
 - swept~the
   - sweep the series（横扫了整个系列赛）
@@ -175,38 +177,36 @@ New York swept the Tampa Bay Ray's by identical 4-2 scores in a day-night double
 
 
 
-## Day 12
+# Day 12
 
 
 
-## Day 13
+# Day 13
 
 
 
-## Day 14
+# Day 14
 
 
 
-## Day 15
+# Day 15
 
 
 
-## Day 16
+# Day 16
 
 
 
-## Day 17
+# Day 17
+
+# Day 18
 
 
 
-## Day 18
+# Day 19
 
 
 
-## Day 19
-
-
-
-## Day 20
+# Day 20
 
 
