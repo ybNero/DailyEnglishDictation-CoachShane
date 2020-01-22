@@ -175,17 +175,39 @@ New York swept the Tampa Bay Ray's by identical 4-2 scores in a day-night double
 - Wednesday
   - n cancel d，即d不发音
 
+# Day 12 Muppets
 
+> AP reports
 
-# Day 12
+Jim Henson, creator of The Muppets —— from Kermit the Frog to Sesame Street —— is born in Greenville， Mississippi! 
 
+## 讲解
 
+The Muppets，即美国动画中的经典形象，puppets玩偶；
 
-# Day 13
+Mississippi，缩写 MS；（abbreviation）
 
+Kermit the Frog，Sesame Street，Muppets中的角色（monster）名称；
 
+# Day 13 Mosquitoes
 
-# Day 14
+Asian tiger mosquitoes are native to the tropics of Southeast Asia, but in the past few years they’re spread all across the southeastern of the United States.
+
+## 讲解
+
+mosquito：注意发音（meskitou），skeeters（在Wisconsin对蚊子的昵称）
+
+be native to，（区别 live to）
+
+the tropics: coconuts，hot weather，ocean
+
+but in the: but~in~nuh (the发音被抵消)
+
+past few years, (past的t不发音, years发音上扬)
+
+# Day 14 Cats
+
+The cat is repeatedly have 9 lives, and he clearly wants to spend one of them here in New York City.
 
 
 
