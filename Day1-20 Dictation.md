@@ -207,11 +207,35 @@ past few years, (past的t不发音, years发音上扬)
 
 # Day 14 Cats
 
-The cat is repeatedly have 9 lives, and he clearly wants to spend one of them here in New York City.
+Cats reputedly have 9 lives, and he clearly wanted to spend at least one of them here in New York City.
 
+## 讲解
 
+reputedly，
 
-# Day 15
+clearly——absolutely/without a doubt/there’s no question
+
+wanted, (n在前，t不发音)，wanit~to
+
+at~least
+
+one of~them
+
+them指代 9 lives
+
+SpongeBob 海绵宝宝，square pants
+
+# Day 15 
+
+the friend pacing seem changed every 11 often left kids zoomed out SpongeBob, unable to concentrated.
+
+The frantic pacing —— scene changes every 11 seconds on average —— often leaves kids zoned out and spun up; unable to concentrate.
+
+## 讲解
+
+frantic: lost of control/ losing control
+
+pacing: speed
 
 
 
