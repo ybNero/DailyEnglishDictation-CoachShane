@@ -237,13 +237,43 @@ frantic: lost of control/ losing control
 
 pacing: speed
 
+spin up: wind up, 旋转
 
+# Day 16 Philippine
 
-# Day 16
+better soup and flouid, the philippine has hit by second typhone at a week
 
+Battered, soaked and flooded; the Philippines is being hit by its 2nd typhoon in a week.
 
+## 讲解
+
+battered: 注意tt和ed的发音，受到（恶劣天气）重创的
+
+soaked: k不发音
+
+Philippines~is
+
+## 预告 Day17
+
+stray dogs/ homeless dogs
+
+animal shelter
+
+put the dogs to sleep, euthanasia
 
 # Day 17
+
+a few years ago there thought be useless, pass their pride,not now.
+
+A few years ago they were thought to be useless past their prime —— not now!
+
+## 讲解
+
+few~years, each~year, last~year, first~year, fifth~year
+
+thought to be（consider）
+
+past~their prime——in one’s prime（在人生中最好的年华，最高效产出的年华）
 
 # Day 18
 
