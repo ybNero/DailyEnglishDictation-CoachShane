@@ -1,4 +1,4 @@
-# Daily English Dictation #1~#20
+# Daily English Dictation #1~#50
 
 
  # Day 1 
@@ -241,9 +241,9 @@ spin up: wind up, 旋转
 
 # Day 16 Philippine
 
-better soup and flouid, the philippine has hit by second typhone at a week
+~~better soup and flouid, the philippine has hit by second typhone at a week~~
 
-Battered, soaked and flooded; the Philippines is being hit by its 2nd typhoon in a week.
+**Battered**, soaked and flooded; the Philippines is being hit by its 2nd typhoon in a week.
 
 ## 讲解
 
@@ -273,16 +273,58 @@ few~years, each~year, last~year, first~year, fifth~year
 
 thought to be（consider）
 
-past~their prime——in one’s prime（在人生中最好的年华，最高效产出的年华）
+past~their prime——in one’s prime（在人生中最好的年华，最高效产出的年华，“人生巅峰”）
 
-# Day 18
+# Day 18 grandma
+
+If you are breathing, it is not too late. Get up and get going.
+
+## 讲解
+
+it is not too late. 这里读的是it is，是为了强调(emphasizing)后面的表述，不同于it's
+
+# Day 19 grandpa
+
+A 67-year-old grandpa has been found alive after being stuck for 6 days at the bottom of a ravine.
+
+## 讲解
+
+67~year~old
+
+grandpa -> gran~pa
+
+ravine, 沟壑; 溪谷;
+
+# Day 20 plane accident
+
+Saturday, an **ultralight plane** crashed to a **Ferris wheel** at a rural festival in Australia, yet somehow no one on the amusement ride nor the plane was hurt. 
+
+## 讲解
+
+crashed,碰撞,撞击; 不是crushed
+
+Ferris wheel, 即amusement ride, 摩天轮
+
+rural, 注意发音; （反义词urban）
 
 
 
-# Day 19
+# Day 21
 
+# Day 22
 
+# Day 23
 
-# Day 20
+# Day 24
 
+# Day 25
 
+# Day 26
+
+# Day 27
+
+# Day 28
+
+# Day 29
+
+# Day 30
