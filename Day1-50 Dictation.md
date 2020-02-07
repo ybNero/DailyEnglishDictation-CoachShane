@@ -307,13 +307,59 @@ Ferris wheel, 即amusement ride, 摩天轮
 
 rural, 注意发音; （反义词urban）
 
+**somehow** -> magically, nobody can explain
 
+## 预告
+
+an opossum, lovely German animal, Heidi, passed away
+
+cute, crossed-eye
 
 # Day 21
 
+Heidi won the world over with her forever cute but slightly **confused** look.
+
+## 讲解
+
+won~one
+
+sb win the world over with sth【常用表达】
+
+look -> expression, appearance
+
+slightly, t不发音
+
+## 预告
+
+the Dead Sea Scrolls
+
 # Day 22
 
+The project to put them online is expected to be completed by 2016.
+
+## 讲解
+
+expected -> thought to be, anticipated
+
+completed -> finished, done
+
+project~to put~them (t省略)
+
+is
+
+2016 -> 读成twenty sixteen  （年份的读法）
+
+## 预告
+
+SAT：Scholastic Aptitude Test
+
+don‘t cheat.
+
 # Day 23
+
+**An alleged** SAT cheating scandal has been uncovered at **a pretigious** Long Island high school. This **college** student is **accused of** taking entrance exam for at least 6 students.
+
+
 
 # Day 24
 
