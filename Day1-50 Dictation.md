@@ -329,11 +329,7 @@ look -> expression, appearance
 
 slightly, t不发音
 
-## 预告
-
-the Dead Sea Scrolls
-
-# Day 22
+# Day 22 the Dead Sea Scrolls
 
 The project to put them online is expected to be completed by 2016.
 
@@ -359,11 +355,57 @@ don‘t cheat.
 
 **An alleged** SAT cheating scandal has been uncovered at **a pretigious** Long Island high school. This **college** student is **accused of** taking entrance exam for at least 6 students.
 
+## 讲解
 
+Long Island, wealthy area for wealthy New Yorkers
 
-# Day 24
+presigious -> honorable, prime  有威望的; 声誉高的;
+
+alleged 声称(新闻报道常用) 这里 an alleged连读有点没分辨出来。
+
+uncovered -> found
+
+uncovered~at~a 
+
+accused of 被指控-> prosecutor 检察官
+
+# Day 24 Baseball
+
+**St. Louis** takes the **World Series opener** on a cool night. It was 49 degrees at the start of the game.
+
+## 讲解
+
+St. -> Sant 
+
+St. Louis, the Gateway to the West, famous for the Arch
+
+圣路易斯大主教队 MLB Cardinals(大主教)  （红雀的logo） 
+
+cool 和 cruel 发音分辨, 这里后面说到49度（49F），应该是华氏温度，即9摄氏度（9.4C）。
+
+World Series, the baseball championship, the best of seven
+
+opener, the first game 开幕赛
+
+takes -> wins
+
+start~of~the （f不发音）
+
+	>If we have the word “of” followed by a consonant then we cancel the “f”.
+	>
+	>kind of -> kinda
+
+## 预告
+
+Turkey, a catastrophe, an earthquake, big tragedy.
 
 # Day 25
+
+**They** searched for the missing throughout night under generator-powered **flood lights** as famliy members waited by the **mounds of debris** —— some in tears.
+
+## 讲解
+
+flood lights：stadium light
 
 # Day 26
 
