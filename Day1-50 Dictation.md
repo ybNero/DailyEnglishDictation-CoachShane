@@ -479,17 +479,57 @@ broccoli 西蓝花
 
 # Day 30 broccoli
 
-it is the vegetable some love and hate, but now a new bread of broccoli, super broccoli, develop in Britain that against hard desease even some tpye of cancers. 
+it is the vegetable some **love to hate**! But now a new breed of broccoli, super broccoli, developed in Britain **may protect** against heart disease even some **kinds of** cancers. 
+
+## 讲解
+
+love to hate -> 
+
+protect - > It may shield us from... / It may block our chances of getting...
+
+protect~against
+
+## 预告
+
+OWS, Occupy Wall Street
+
+against bank, economic system  
+
+# Day 31
+
+**Mayer Sam Adams** `ordered that the` camp be shut down Saturday **citing unhealthy conditions** and attraction of drug dealers and **thieves**.
+
+## 讲解
+
+ordered~that~the （音频中that 和the基本就一次发音带过了）
+
+shut down （t省略不发音）
+
+citing -> stating the reason 陈述原因(`提及(原因);举出(示例);`)
+
+unhealthy conditions -> unsanitary, no plumbing
+
+thieves, thief(单数形式)
+
+## 预告
+
+Fukashima 福岛核电站
+
+nuclear facility, power plant
+
+
+
+# Day 32 Fukashima
+
+(34 words)
+
+A **preliminary** government report predicts it’ll take 30 years or more to safely **decommission** that facility and **it** could be decades before nearby residents **who were forced to flee** can return to the area.
 
 ## 讲解
 
 
 
 ## 预告
-
-# Day 31
-
-# Day 32
 
 # Day 33
 
