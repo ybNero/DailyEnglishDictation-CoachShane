@@ -407,12 +407,122 @@ Turkey, a catastrophe, an earthquake, big tragedy.
 
 flood lights：stadium light
 
-# Day 26
+这里的as可以用while替换
 
-# Day 27
+the mounds of debris, mounds可以用piles, mountains替换
 
-# Day 28
+## 预告
 
-# Day 29
+hanging yoga 
 
-# Day 30
+# Day 26 yoga
+
+**It’s the kind of thing** you look forward to instead of, you know, some workouts you **dread** and you **think of it as work** and this is just fun.
+
+## 讲解
+
+look forward to跟dread对应
+
+kind~of~thing
+
+think~of~it~as work
+
+## 预告
+
+Halloween, wear costum, treat or trick,
+
+# Day 27 Halloween
+
+Superhero costumes, as usual, are big this year —— especially **from** recent movies, like Thor and the Green Lantern.
+
+## 讲解
+
+big -> 这里是popular的意思，也有用作important（除了big和huge本义之外）
+
+## 预告
+
+Snowstorm, Connecticut(康涅提克州), broke power line
+
+Ironically, without electricity, food will go bad.
+
+# Day 28 Snowstorm
+
+It’s a pain cause my fridge is... I **dumped** it today, and the food’s gone.
+
+## 讲解
+
+fridge -> 冰箱
+
+dumped~it~today
+
+## 预告
+
+pilot in Poland, land the jet with no wheels
+
+# Day 29 Pilot
+
+He says he was simply going by the book when it comes to landing without **gear**, and that **he and his fellow pilots** train for these type**s** of incidents.
+
+## 讲解
+
+going by the book -> follow by the written law 按照规矩办事
+
+without (landing) gear
+
+he~and~his fellow pilots (comrades)	h发音连读时被抵消
+
+区别`incident`和`accident`
+
+## 预告
+
+broccoli 西蓝花
+
+# Day 30 broccoli
+
+it is the vegetable some love and hate, but now a new bread of broccoli, super broccoli, develop in Britain that against hard desease even some tpye of cancers. 
+
+## 讲解
+
+
+
+## 预告
+
+# Day 31
+
+# Day 32
+
+# Day 33
+
+# Day 34
+
+# Day 35
+
+# Day 36
+
+# Day 37
+
+# Day 38
+
+# Day 39
+
+# Day 40
+
+# Day 41
+
+# Day 42
+
+# Day 43
+
+# Day 44
+
+# Day 45
+
+# Day 46
+
+# Day 47
+
+# Day 48
+
+# Day 49
+
+# Day 50
