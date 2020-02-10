@@ -533,7 +533,7 @@ A stupid husband throw diamond rings away in the trash, and the trash company pi
 
 # Day 33
 
-**I** was lifting, you know, chairs out of the way, brkoen glass uh, other sanitary **items I don’t want to** get into, but um it was uh, horrific to say the li.
+**I** was lifting, you know, chairs out of the way, brkoen glass uh, other sanitary **items I don’t want to** get into, but um it was uh, horrific to say the least.
 
 ## 讲解
 
@@ -541,17 +541,99 @@ sanitary items -> gorss..disgusting diapers(纸尿布), kleenex(面巾纸),tolie
 
 I don’t want to **get into it** -> I don’t want to talk about it.
 
-# Day 34
+> I don’t wanna get into politic(troubles)  -- get into sth.
+>
+> want to -> wanna
 
-# Day 35
+it was horrific **to say the least** -> 毫不夸张的说/往轻里说/客气地说
+
+## 预告
+
+Toyota
+
+steering wheel, steering handle
+
+# Day 34 Toyota
+
+Toyota is recalling more than a half million **vehicles** for problems that **could** make them difficult to steer.
+
+## 讲解
+
+recall 召回(汽车和电子产品的召回事件)，也做“回忆”(remind)
+
+could这里读得很轻，靠语感补上。
+
+## 预告
+
+penguin in New Zealand troubled by oil
+
+# Day 35  Penguin
+
+It’s great. It’s um, been a little bit nerve-wracking, um, and it’s been a long process to get here.
+
+## 讲解
+
+wracking -> destructive
+
+nerve-wracking 精神上带来极大痛苦的
+
+## 预告 
+
+father and son from Vietnam, they escape from Vietnam by boat, unfortunately met pirate.
+
+
 
 # Day 36
 
-# Day 37
+When the family left Vietnam by boat, **bound** for Tialand, but he boat was intercepted by pirates. After years of trying, the father located his son in Tianland.
 
-# Day 38
+## 讲解
 
-# Day 39
+**bound** for Tialand 用于交通工具说明旅途目的地
+
+# Day 37 ❤❤❤
+
+a gooey mess snarls traffic along the busy Oennsylvania Turnpike. A leaking valve on a tanker spread drviveway sealant across 40-miles stretch of the eastbound side. 
+
+## 讲解
+
+gooey -> sticky, liquid, gel （maple syrup 枫树糖浆）
+
+snarl -> v. twist 这里是阻碍(交通)的意思；
+
+Turnpike -> tollway, highway 收费高速公路
+
+valve -> faucet 水龙头/阀门
+
+tanker 油罐车
+
+driveway sealant -> tar柏油, sealant密封剂
+
+## 预告
+
+piano concert
+
+# Day 38 Concert
+
+The music is being played **at a church** in the Germany and, well, it really **lives up to its name**. Since it started, **there have been** just 11 **chord** changes and **the next one isn’t be scheduled** until July 2012.
+
+## 讲解
+
+live up to one's name 匹配得上某人的名声
+
+there~have~been 注意连读的发音，容易听成happen
+
+chord n.和弦;和音;弦  
+
+## 预告
+
+16 Rabbit
+
+Good Samaritans (在别人危难时予以帮助的)撒马利亚人;助人为乐者
+
+# Day 39 Rabbits
+
+dozens of white rabbits were apperantly dumped along aside the road Sunday night. more than 60 benny were scattered the shouder.
 
 # Day 40
 
