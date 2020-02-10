@@ -502,13 +502,9 @@ against bank, economic system
 ## 讲解
 
 ordered~that~the （音频中that 和the基本就一次发音带过了）
-
 shut down （t省略不发音）
-
 citing -> stating the reason 陈述原因(`提及(原因);举出(示例);`)
-
 unhealthy conditions -> unsanitary, no plumbing
-
 thieves, thief(单数形式)
 
 ## 预告
@@ -527,11 +523,23 @@ A **preliminary** government report predicts it’ll take 30 years or more to sa
 
 ## 讲解
 
-
+**preliminary** government report, 这里的preliminary修饰的是整个政府报告;
+predict -> forecast
+decommission, v.正式停止使用(武器、核电站等设施)
 
 ## 预告
 
+A stupid husband throw diamond rings away in the trash, and the trash company pick up the trash to the dump.
+
 # Day 33
+
+**I** was lifting, you know, chairs out of the way, brkoen glass uh, other sanitary **items I don’t want to** get into, but um it was uh, horrific to say the li.
+
+## 讲解
+
+sanitary items -> gorss..disgusting diapers(纸尿布), kleenex(面巾纸),toliet papers...
+
+I don’t want to **get into it** -> I don’t want to talk about it.
 
 # Day 34
 
