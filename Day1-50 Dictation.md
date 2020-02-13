@@ -633,21 +633,164 @@ Good Samaritans (在别人危难时予以帮助的)撒马利亚人;助人为乐�
 
 # Day 39 Rabbits
 
-dozens of white rabbits were apperantly dumped along aside the road Sunday night. more than 60 benny were scattered the shouder.
+Dozens of white rabbits were apperantly dumped **along the side of** the road Sunday night. More than 60 **bunnies** were scattered on the shoulder.
+
+## 讲解
+
+along the side~of~the road
+
+rabbit -> bunny
+
+on the shoulder (of the road) 在路边(路肩)上
+
+cement, asphalt, concrete(gravel)
+
+pull over to the shoulder
+
+## 预告
+
+UK David conspiarcy theory, his quotation
 
 # Day 40
 
-# Day 41
+31 words
 
-# Day 42
+There’s **a wonderful** line I came across: If **you’ve** always done...or, **if** you always do what **you’ve** always done, **you’ll** always get **you’ve** always got. **It’s a brilliant** line.
 
-# Day 43
+## 讲解
 
-# Day 44
+句中的you’ll 和 you’ve读得快的时候显然是不容易听出来的，只能靠句子的时态去补充；
 
-# Day 45
+There’s~a 这里读的快实际上只能听到“the”的发音
+
+came across -> found 
+
+brilliant~line (t省读)
+
+## 预告
+
+Christmas, Layaway(分期预付)
+
+
+
+# Day 41 Christmas layaway
+
+41 words
+
+Her story **has inspirared** others from Montana to Indiana to pay off the bills of complete strangers in theses days before Christmas. Holiday shoppers **who’ve** heard about the layaway Santas, say the sweeping acts of kindness have **restored** their faith **in** people.
+
+## 讲解
+
+has inspirared 这里inspired最后d的发音没听到，但是音频中的明显停顿；
+
+**sweeping** ascts of kindness, 影响广泛的; 大范围的; 
+
+have~restored have的发音直接把**re**带过去了
+
+## 预告
+
+Christmas poem
+
+# Day 42 Christmas poem
+
+41 words
+
+He **sprang** to his **sleigh** to his team gave **~~him~~** a whistle! And **away** they all flew like a down of a **thistle**. But I heard him exclaimed **as** he drove out of **~~the~~** sight “happy Christmas to all, and to all a good night!”
+
+## 讲解
+
+He~spring to his~sleigh
+
+​	sprang -> spring 跳跃/弹簧
+
+​	sleigh: 雪橇; reindeer: 驯鹿
+
+[metaphor] like a down of a thistle 像蓟花的羽毛
+
+## 预告
+
+Seinfield, sitcom(情景剧)
+
+a fortune teller
+
+# Day 43 《Seinfield》
+
+23 words
+
+E: Hey George, you know, my friend goes to a **psychic**,
+G: Really?
+E: Uh-huh. We should go sometime.
+G: I’d love to go. Make an appointment.
+
+## 讲解
+
+**psychic**, a fortune teller
+
+different type of fortune teller: palm reader, tarot card reader, people who can look into a crystal ball...
+
+sometime 即有机会、下次；不同于sometimes
+
+make~an appointment, appointment中间那个t省读
+
+appointment和reservation
+
+​	appointment更倾向于consulting, 需要付钱的，跟人交流
+
+​	reservation更多是预定座位、酒店等；
+
+## 预告
+
+Everybody loves Raymond, sitcom
+
+# Day 44 《Everybody loves Raymond》
+
+
+
+R: **Dad, I beat you.** Don’t you remember the Raymond Spinball?
+
+F: Ray, I learnt **~~the~~** **to** play in Korea.
+
+​	From Koreans. Do you think some **punk** kid’s gonna **actually** beat me?
+
+R: **No, dad**, you **were trying win**.You were sweating and **panting**.
+
+F: I’m a damn fine actor.
+
+## 讲解
+
+Spinball, 这里其实是在开玩笑，说Raymond的“招式”——旋球，rocket: 乒乓球拍
+
+Do~you~think 这里读的极快
+
+some punk kid’s 这里的some并不是说一些，只是表示某个，所以kid用单数；
+
+...you were trying to win. You were... 这里to win读得很快，直接带到第二句you were
+
+sweating and panting 出汗和喘息
+
+## 预告
+
+Seinfield
+
+A question we use almost everyday
+
+# Day 45 Seinfield
+
+Hey, is it **cold out**?
+
+## 讲解
+
+is it cold out(outside)? 询问外边天气如何
+
+## 预告
+
+French history
 
 # Day 46
+
+23 words
+
+For more than 3000 years, the power of the french king is absolute. This man that he has the power to do anything.
 
 # Day 47
 
