@@ -790,11 +790,31 @@ French history
 
 23 words
 
-For more than 3000 years, the power of the french king is absolute. This man that he has the power to do anything.
+For more than 3000 years, the power of the French king **was** absolute. This **meant** that he **had** the power to do anything.
+
+## 讲解
+
+
+
+## 预告
 
 # Day 47
 
+38 words
+
+What people **will** do these days for their pats... **A** wash and a **blow**dry——**that goes** without saying. But the demand**ing** of the dogs now **wants a limo** along with other **creature cpmforts** at a pet hotel and day spa!
+
+## 讲解
+
+## 预告
+
 # Day 48
+
+
+
+## 讲解
+
+## 预告
 
 # Day 49
 
