@@ -794,28 +794,78 @@ For more than 3000 years, the power of the French king **was** absolute. This **
 
 ## 讲解
 
+This **meant** 这里meant确实读的就是man的发音，但这里写完之后显然语法是有问题的，应该引起注意
+
 
 
 ## 预告
 
-# Day 47
+Dogs, some people treat their pets like Queens and Kings.
+
+# Day 47 Dogs
 
 38 words
 
-What people **will** do these days for their pats... **A** wash and a **blow**dry——**that goes** without saying. But the demand**ing** of the dogs now **wants a limo** along with other **creature cpmforts** at a pet hotel and day spa!
+What people **will** do these days for their pats... **A** wash and a **blow**dry——**that goes** without saying. But the demand**ing** ~~of the~~ dogs now **wants a limo** along with other **creature comforts** at a pet hotel and day spa!
 
 ## 讲解
 
+blowdry, 吹干 （blow dryer 吹风机)
+
+limo, 同 limousine;大型高级轿车;豪华轿车;
+
+sth goes without saying, 不言而喻
+
+the demanding dogs, demanding为形容词，要求高的
+
+creature comforts, 即material needs, 表示物质需求/物质享受
+
 ## 预告
 
-# Day 48
+murderer investigation
 
+# Day 48 Murderer Investigation
 
+32 words
+
+**Buckinghan Palace** officials are staying mum about the murder case, and police **are** keeping **many** **de**tails confidential as they try to identify the victim and figure out excatly what happen to her.
 
 ## 讲解
 
+Buckinghan Palace 白金汉宫 英国的“白宫”
+
+Palce~officials这里念的很快，注意区分official(常跟government相连，政府官员)和officer(常跟police相连, 警员)
+
+be staying mum about sth  ->  keep silence 保持沉默
+
+many details 
+
 ## 预告
 
-# Day 49
+subway(USA)，underground(UK)
+
+# Day 49 Underground
+
+January 10th, 1863  “All aboard, **but** mind the gap” as world’s first underground passenger railway opens in London.
+
+## 讲解
+
+“All aboard and **get on** the train/bus/plane” as the conductor used to say like this. 
+
+## 预告
+
+British dialogue 
 
 # Day 50
+
+**And why do** you **wanna go** there? （我听成的是what are you able to get there?)
+
+I konw it’s **had a bad press** recently but **it’s** the place **that’s** taken my fancy. 
+
+## 讲解
+
+why do you wanna 这里把do听出来很重要，不然其他几个词其实都容易由于口音而发音不同
+
+
+
+## 预告
