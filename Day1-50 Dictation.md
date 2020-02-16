@@ -856,7 +856,7 @@ January 10th, 1863  “All aboard, **but** mind the gap” as world’s first un
 
 British dialogue 
 
-# Day 50
+# Day 50 British dialogue
 
 **And why do** you **wanna go** there? （我听成的是what are you able to get there?)
 
@@ -866,6 +866,4 @@ I konw it’s **had a bad press** recently but **it’s** the place **that’s**
 
 why do you wanna 这里把do听出来很重要，不然其他几个词其实都容易由于口音而发音不同
 
-
-
-## 预告
+小女孩的声音有点奶声奶气，press recently和taken my fancy辨识度比较高
