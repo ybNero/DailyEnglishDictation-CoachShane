@@ -31,74 +31,101 @@ Wikipedia, new law for information
 
 # Day 53
 
-Anti-pira**c**y legistlation under consideration in Washington ha**s** some websites in a **tizzy** Wikipedia, **Boing Boing and Reddit** say they’ll have none of it on their blacking out **their** sites on Wednesday.
+Anti-pira**c**y legistlation under consideration in Washington ha**s** (made) some websites in a **tizzy**. Wikipedia, **Boing Boing and Reddit** say they’ll have none of it **and are blacking out** their sites on Wednesday.
 
 ## 讲解
 
 Anti-piracy 反剽窃 (pirated 剽窃的)
 
-in a tizzy 在一片混乱中
+in a tizzy (feeling very nervous or confused)
 
-Boing Boing and Reddit 国外著名论坛
+Wikipedia, **Boing Boing**(科技信息博客) and **Reddit**(国外著名论坛)
+
+blacking out  -> blocking out
+
+## 预告
+
+shark attack 
+
+down under 特指澳大利亚; 南边;
 
 # Day 54
 
->
+There are usually about 3 shark attacks on people **in and around** Australia all year. In 2012, the coutry has seem 3 attacks already and January isn’t even ~~un~~finished, yet.
 
 ## 讲解
 
+in and around town 在城里及周围, 城里和周边地区;
 
+## 预告
 
-# Day 55 Bubblegum
+tattoos
 
-- - 
+But what if the government said you CAN’T have a tattoo?
+
+# Day 55 Tattoo
+
+44 words
+
+A **Georgia** mother ~~has~~ says she was arrested for allowing her 10-year-old son to get a tattoo in memory of his late brother.  
+We hoped **that** they **could** ~~plan on~~ find something that would sustain them ~~to their~~ **through that** lost, but this is not the way.
 
 ## 讲解
 
-- 
+10-year-old 这里其实没听到years的s发音，应该反应过来。
 
+late brother -> deceased/dead brother
 
+sustain sb through the lost, 这里sustain是“支持, 维持”的意思
+
+**conundrum** n. a confusing/difficult problem!
 
 # Day 56
 
+**You** sold us a hair with a cake around it?
+
+## 讲解
+
+sold~us~a~hair 注意听sold的d和us连读
+
+around~it 这里d和it连读很清晰
+
+## 预告
+
+cars accident, all are expensive cars, like Ferraris.
+
+# Day 57  car accident
+
+It’s surely **in** the running for one of the most expensive **pile-ups** in highway history. These crumple**d** Ferraris **were** among 8 involved in the crash. 
+The airbags may have saved those inside from serious injury, but all what damages have been done to **burise** the spirits of these ~~and~~ enthusia**sts** attched to their **sleek** sports cars.
+
+## 讲解
+
+pile-ups  -> crashes, accidents
+
+crumpled,  压皱的, 车祸导致车体受挤压
+
+burise the spirits
+
+## 预告
+
+
+
+# Day 58 
+
 
 
 ## 讲解
 
-- 
 
 
-
-# Day 57 
-
+# Day 59 
 
 
-## 讲解
-
-- 
-
-
-
-
-# Day 58 piercing
 
 
 
 ## 讲解
-
-- 
-
-
-
-# Day 59 satellite
-
-> 
-
-
-
-## 讲解
-
-- 
 
 
 
@@ -108,7 +135,7 @@ Boing Boing and Reddit 国外著名论坛
 
 ## 讲解
 
-- 
+
 
 # Day 61 
 
@@ -116,8 +143,7 @@ Boing Boing and Reddit 国外著名论坛
 
 ## 讲解
 
-- 
-  
+
 
 # Day 62 
 
@@ -125,7 +151,7 @@ Boing Boing and Reddit 国外著名论坛
 
 
 
-# Day 63 Mosquitoes
+# Day 63 
 
 
 
@@ -133,7 +159,7 @@ Boing Boing and Reddit 国外著名论坛
 
 
 
-# Day 64 Cats
+# Day 64 
 
 
 
@@ -149,7 +175,7 @@ Boing Boing and Reddit 国外著名论坛
 
 
 
-# Day 66 Philippine
+# Day 66 
 
 
 
@@ -185,55 +211,31 @@ Boing Boing and Reddit 国外著名论坛
 
 
 
-# Day 20 plane accident
-
-Saturday, an **ultralight plane** crashed to a **Ferris wheel** at a rural festival in Australia, yet somehow no one on the amusement ride nor the plane was hurt. 
+# Day 70 
 
 ## 讲解
 
-crashed,碰撞,撞击; 不是crushed
 
-Ferris wheel, 即amusement ride, 摩天轮
-
-rural, 注意发音; （反义词urban）
-
-**somehow** -> magically, nobody can explain
 
 ## 预告
 
-an opossum, lovely German animal, Heidi, passed away
 
-cute, crossed-eye
 
-# Day 21
+# Day 71
 
-Heidi won the world over with her forever cute but slightly **confused** look.
+
 
 ## 讲解
 
-won~one
 
-sb win the world over with sth【常用表达】
 
-look -> expression, appearance
+# Day 22 
 
-slightly, t不发音
 
-# Day 22 the Dead Sea Scrolls
-
-The project to put them online is expected to be completed by 2016.
 
 ## 讲解
 
-expected -> thought to be, anticipated
 
-completed -> finished, done
-
-project~to put~them (t省略)
-
-is
-
-2016 -> 读成twenty sixteen  （年份的读法）
 
 ## 预告
 
@@ -664,96 +666,72 @@ Seinfield
 
 A question we use almost everyday
 
-# Day 45 Seinfield
+# Day 95 
 
-Hey, is it **cold out**?
+
 
 ## 讲解
 
-is it cold out(outside)? 询问外边天气如何
+
 
 ## 预告
 
 French history
 
-# Day 46
+# Day 96
 
-23 words
 
-For more than 3000 years, the power of the French king **was** absolute. This **meant** that he **had** the power to do anything.
 
 ## 讲解
 
-This **meant** 这里meant确实读的就是man的发音，但这里写完之后显然语法是有问题的，应该引起注意
+
 
 
 
 ## 预告
 
-Dogs, some people treat their pets like Queens and Kings.
 
-# Day 47 Dogs
 
-38 words
+# Day 97 
 
-What people **will** do these days for their pats... **A** wash and a **blow**dry——**that goes** without saying. But the demand**ing** ~~of the~~ dogs now **wants a limo** along with other **creature comforts** at a pet hotel and day spa!
+
 
 ## 讲解
 
-blowdry, 吹干 （blow dryer 吹风机)
 
-limo, 同 limousine;大型高级轿车;豪华轿车;
 
-sth goes without saying, 不言而喻
 
-the demanding dogs, demanding为形容词，要求高的
-
-creature comforts, 即material needs, 表示物质需求/物质享受
 
 ## 预告
 
 murderer investigation
 
-# Day 48 Murderer Investigation
+# Day 98 
 
-32 words
 
-**Buckinghan Palace** officials are staying mum about the murder case, and police **are** keeping **many** **de**tails confidential as they try to identify the victim and figure out excatly what happen to her.
 
 ## 讲解
 
-Buckinghan Palace 白金汉宫 英国的“白宫”
 
-Palce~officials这里念的很快，注意区分official(常跟government相连，政府官员)和officer(常跟police相连, 警员)
-
-be staying mum about sth  ->  keep silence 保持沉默
-
-many details 
 
 ## 预告
 
-subway(USA)，underground(UK)
 
-# Day 49 Underground
 
-January 10th, 1863  “All aboard, **but** mind the gap” as world’s first underground passenger railway opens in London.
+# Day 99 
+
+
 
 ## 讲解
 
-“All aboard and **get on** the train/bus/plane” as the conductor used to say like this. 
+
 
 ## 预告
 
-British dialogue 
+# Day 100 
 
-# Day 50 British dialogue
 
-**And why do** you **wanna go** there? （我听成的是what are you able to get there?)
-
-I konw it’s **had a bad press** recently but **it’s** the place **that’s** taken my fancy. 
 
 ## 讲解
 
-why do you wanna 这里把do听出来很重要，不然其他几个词其实都容易由于口音而发音不同
 
-小女孩的声音有点奶声奶气，press recently和taken my fancy辨识度比较高
