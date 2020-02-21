@@ -164,17 +164,23 @@ we’re~out~in the middle~of~nowhere
 
 Vermont 佛蒙特州，这里的表达就是我们说的类似“这很成都，这很中国”
 
-
-
 ## 预告
 
-# Day 61 
+Beatles
 
+What's your favorite Beatles song？
 
+# Day 61 Beatles
+
+Feb 9th, 1964, Beatlemania hits prime time in the United States.
 
 ## 讲解
 
+Beatlemania 狂热，类似这样的表达——Linsanity
 
+hit prime time, 之前学到过类似的表达
+
+hit -> come to arrive
 
 ## 预告
 
