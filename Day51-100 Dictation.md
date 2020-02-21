@@ -97,27 +97,36 @@ cars accident, all are expensive cars, like Ferraris.
 # Day 57  car accident
 
 It’s surely **in** the running for one of the most expensive **pile-ups** in highway history. These crumple**d** Ferraris **were** among 8 involved in the crash. 
-The airbags may have saved those inside from serious injury, but all what damages have been done to **burise** the spirits of these ~~and~~ enthusia**sts** attched to their **sleek** sports cars.
+The airbags may have saved those inside from serious injury, but **oh~** what damages have been done to **bruise** the spirits of these ~~and~~ enthusia**sts** attached to their **sleek** sports cars.
 
 ## 讲解
 
 pile-ups  -> crashes, accidents
 
-crumpled,  压皱的, 车祸导致车体受挤压
+crumpled,  压皱的（车祸导致车体受挤压）
 
-burise the spirits
+bruise the spirits/egos  拟人化的表达，指自尊受到伤害
+
+sleek sports car  线条流畅的; 造型优美的; Aerodynamic
 
 ## 预告
 
-
+Frasier, Lilith, Dad
 
 # Day 58 
 
-
+Hey, Lilith, sorry for the holdup, but **Frasier** ~~you~~ should **be** back **from the dentist any** minute.
+Oh, ~~alright~~ **all right**. That will give us **a** chance to visit.
 
 ## 讲解
 
+holdup -> delay
 
+the dentist~any minute 这里是全句最难听懂的呃点
+
+alright和all right的区别
+
+give~us~a chance
 
 # Day 59 
 
