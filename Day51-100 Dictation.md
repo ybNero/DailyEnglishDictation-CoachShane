@@ -128,23 +128,41 @@ alright和all right的区别
 
 give~us~a chance
 
+## 预告
+
+莱昂纳多·迪卡普里奥 Leonardo DiCaprio
+
+Titanic sunk, iceberg.
+
 # Day 59 
 
+51 words
 
+**This** iceberg here, there’s **outcroppings** under the water. And the sea ice, iceberg ice is very hard, so **it’s almost like,** it could be almost **be** like a **can opener**. And probably the Titanic went by it, it just sliced a hole in it like **you** would with a manual can opener!
 
+## 讲解
 
+outcroppings, 露头(露出地面的大片岩层)
+
+sea ice, iceberg ice, 
+
+it just~sliced a hole~in~it
+
+a manual can opener, 这里manual容易听成9-year-old，有点尴尬
+
+## 预告
+
+racing with dog sledding, toboggan 雪橇
+
+# Day 60 Toboggan 
+
+it’s snowing, it’s beautiful, ~~around~~ we’re out in the middle ~~and~~ of nowhere. I’m freezing! And I’m about to be pulled by 8 dogs in a toboggan. Um, really, it’s doesn’t get ~~any~~ much more **Vermont** than this.
 
 ## 讲解
 
 
 
-# Day 60
-
-
-
-## 讲解
-
-
+## 预告
 
 # Day 61 
 
@@ -154,11 +172,13 @@ give~us~a chance
 
 
 
+## 预告
+
 # Day 62 
 
 ## 讲解
 
-
+## 预告
 
 # Day 63 
 
@@ -166,7 +186,7 @@ give~us~a chance
 
 ## 讲解
 
-
+## 预告
 
 # Day 64 
 
@@ -238,7 +258,7 @@ give~us~a chance
 
 
 
-# Day 22 
+# Day 72 
 
 
 
@@ -248,311 +268,207 @@ give~us~a chance
 
 ## 预告
 
-SAT：Scholastic Aptitude Test
 
-don‘t cheat.
 
-# Day 23
+# Day 73
 
-**An alleged** SAT cheating scandal has been uncovered at **a pretigious** Long Island high school. This **college** student is **accused of** taking entrance exam for at least 6 students.
+
 
 ## 讲解
 
-Long Island, wealthy area for wealthy New Yorkers
 
-presigious -> honorable, prime  有威望的; 声誉高的;
 
-alleged 声称(新闻报道常用) 这里 an alleged连读有点没分辨出来。
+# Day 74 
 
-uncovered -> found
 
-uncovered~at~a 
-
-accused of 被指控-> prosecutor 检察官
-
-# Day 24 Baseball
-
-**St. Louis** takes the **World Series opener** on a cool night. It was 49 degrees at the start of the game.
 
 ## 讲解
 
-St. -> Sant 
 
-St. Louis, the Gateway to the West, famous for the Arch
-
-圣路易斯大主教队 MLB Cardinals(大主教)  （红雀的logo） 
-
-cool 和 cruel 发音分辨, 这里后面说到49度（49F），应该是华氏温度，即9摄氏度（9.4C）。
-
-World Series, the baseball championship, the best of seven
-
-opener, the first game 开幕赛
-
-takes -> wins
-
-start~of~the （f不发音）
-
-	>If we have the word “of” followed by a consonant then we cancel the “f”.
-	>
-	>kind of -> kinda
 
 ## 预告
 
-Turkey, a catastrophe, an earthquake, big tragedy.
 
-# Day 25
 
-**They** searched for the missing throughout night under generator-powered **flood lights** as famliy members waited by the **mounds of debris** —— some in tears.
+# Day 75
+
+
 
 ## 讲解
 
-flood lights：stadium light
 
-这里的as可以用while替换
-
-the mounds of debris, mounds可以用piles, mountains替换
 
 ## 预告
 
-hanging yoga 
 
-# Day 26 yoga
 
-**It’s the kind of thing** you look forward to instead of, you know, some workouts you **dread** and you **think of it as work** and this is just fun.
+# Day 76 
+
+
 
 ## 讲解
 
-look forward to跟dread对应
 
-kind~of~thing
-
-think~of~it~as work
 
 ## 预告
 
-Halloween, wear costum, treat or trick,
 
-# Day 27 Halloween
 
-Superhero costumes, as usual, are big this year —— especially **from** recent movies, like Thor and the Green Lantern.
+# Day 77 
+
+
 
 ## 讲解
 
-big -> 这里是popular的意思，也有用作important（除了big和huge本义之外）
+
 
 ## 预告
 
-Snowstorm, Connecticut(康涅提克州), broke power line
 
-Ironically, without electricity, food will go bad.
 
-# Day 28 Snowstorm
+# Day 78 
 
-It’s a pain cause my fridge is... I **dumped** it today, and the food’s gone.
+
 
 ## 讲解
 
-fridge -> 冰箱
 
-dumped~it~today
 
 ## 预告
 
-pilot in Poland, land the jet with no wheels
 
-# Day 29 Pilot
 
-He says he was simply going by the book when it comes to landing without **gear**, and that **he and his fellow pilots** train for these type**s** of incidents.
+# Day 79 
+
+
 
 ## 讲解
 
-going by the book -> follow by the written law 按照规矩办事
 
-without (landing) gear
-
-he~and~his fellow pilots (comrades)	h发音连读时被抵消
-
-区别`incident`和`accident`
 
 ## 预告
 
-broccoli 西蓝花
 
-# Day 30 broccoli
 
-it is the vegetable some **love to hate**! But now a new breed of broccoli, super broccoli, developed in Britain **may protect** against heart disease even some **kinds of** cancers. 
+# Day 80 
+
+
 
 ## 讲解
 
-love to hate -> 
 
-protect - > It may shield us from... / It may block our chances of getting...
 
-protect~against
+
 
 ## 预告
 
-OWS, Occupy Wall Street
 
-against bank, economic system  
 
-# Day 31
+# Day 81
 
-**Mayer Sam Adams** `ordered that the` camp be shut down Saturday **citing unhealthy conditions** and attraction of drug dealers and **thieves**.
+
 
 ## 讲解
 
-ordered~that~the （音频中that 和the基本就一次发音带过了）
-shut down （t省略不发音）
-citing -> stating the reason 陈述原因(`提及(原因);举出(示例);`)
-unhealthy conditions -> unsanitary, no plumbing
-thieves, thief(单数形式)
+
 
 ## 预告
 
-Fukashima 福岛核电站
-
-nuclear facility, power plant
 
 
 
-# Day 32 Fukashima
 
-(34 words)
+# Day 82 
 
-A **preliminary** government report predicts it’ll take 30 years or more to safely **decommission** that facility and **it** could be decades before nearby residents **who were forced to flee** can return to the area.
+
 
 ## 讲解
 
-**preliminary** government report, 这里的preliminary修饰的是整个政府报告;
-predict -> forecast
-decommission, v.正式停止使用(武器、核电站等设施)
+
 
 ## 预告
 
-A stupid husband throw diamond rings away in the trash, and the trash company pick up the trash to the dump.
 
-# Day 33
 
-**I** was lifting, you know, chairs out of the way, brkoen glass uh, other sanitary **items I don’t want to** get into, but um it was uh, horrific to say the least.
+# Day 83
+
+
 
 ## 讲解
 
-sanitary items -> gorss..disgusting diapers(纸尿布), kleenex(面巾纸),toliet papers...
 
-I don’t want to **get into it** -> I don’t want to talk about it.
-
-> I don’t wanna get into politic(troubles)  -- get into sth.
->
-> want to -> wanna
-
-it was horrific **to say the least** -> 毫不夸张的说/往轻里说/客气地说
 
 ## 预告
 
-Toyota
 
-steering wheel, steering handle
 
-# Day 34 Toyota
+# Day 84 
 
-Toyota is recalling more than a half million **vehicles** for problems that **could** make them difficult to steer.
+
 
 ## 讲解
 
-recall 召回(汽车和电子产品的召回事件)，也做“回忆”(remind)
 
-could这里读得很轻，靠语感补上。
 
 ## 预告
 
-penguin in New Zealand troubled by oil
 
-# Day 35  Penguin
 
-It’s great. It’s um, been a little bit nerve-wracking, um, and it’s been a long process to get here.
+# Day 85  
+
+
 
 ## 讲解
 
-wracking -> destructive
 
-nerve-wracking 精神上带来极大痛苦的
 
 ## 预告 
 
-father and son from Vietnam, they escape from Vietnam by boat, unfortunately met pirate.
 
 
+# Day 86
 
-# Day 36
 
-When the family left Vietnam by boat, **bound** for Tialand, but he boat was intercepted by pirates. After years of trying, the father located his son in Tianland.
 
 ## 讲解
 
-**bound** for Tialand 用于交通工具说明旅途目的地
 
-# Day 37 ❤❤❤
 
-a gooey mess snarls traffic along the busy Oennsylvania Turnpike. A leaking valve on a tanker spread drviveway sealant across 40-miles stretch of the eastbound side. 
+# Day 87 ❤❤❤
+
+
 
 ## 讲解
 
-gooey -> sticky, liquid, gel （maple syrup 枫树糖浆）
 
-snarl -> v. twist 这里是阻碍(交通)的意思；
-
-Turnpike -> tollway, highway 收费高速公路
-
-valve -> faucet 水龙头/阀门
-
-tanker 油罐车
-
-driveway sealant -> tar柏油, sealant密封剂
 
 ## 预告
 
-piano concert
 
-# Day 38 Concert
 
-The music is being played **at a church** in the Germany and, well, it really **lives up to its name**. Since it started, **there have been** just 11 **chord** changes and **the next one isn’t be scheduled** until July 2012.
+# Day 88 Concert
 
-## 讲解
 
-live up to one's name 匹配得上某人的名声
-
-there~have~been 注意连读的发音，容易听成happen
-
-chord n.和弦;和音;弦  
-
-## 预告
-
-16 Rabbit
-
-Good Samaritans (在别人危难时予以帮助的)撒马利亚人;助人为乐者
-
-# Day 39 Rabbits
-
-Dozens of white rabbits were apperantly dumped **along the side of** the road Sunday night. More than 60 **bunnies** were scattered on the shoulder.
 
 ## 讲解
 
-along the side~of~the road
 
-rabbit -> bunny
-
-on the shoulder (of the road) 在路边(路肩)上
-
-cement, asphalt, concrete(gravel)
-
-pull over to the shoulder
 
 ## 预告
 
-UK David conspiarcy theory, his quotation
 
-# Day 40
+
+# Day 89 
+
+
+
+## 讲解
+
+
+
+## 预告
+
+# Day 90
 
 31 words
 
