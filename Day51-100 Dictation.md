@@ -184,15 +184,25 @@ hit -> come to arrive
 
 ## 预告
 
+overweight -> obesity is a disease, deadly
+
 # Day 62 
+
+According to the CDC, 2 out of every 3 Americans **are** considered either overweight or obese, and the trend towards unhealthy habits **is starting** even younger with **nearly** 20% children between **the age of** 6 and 11 ~~is~~ considered obese. 
 
 ## 讲解
 
+CDC, The Center for Disease Control and Prevention
+
 ## 预告
 
-# Day 63 
+约翰列侬, Beatles, In my life
 
+# Day 63 In my life
 
+there are places I remember, all my life those songs have changed, some forever I better, some have gone and some remain.
+
+all these places has their moments, we love our friends as soon as we call ,some are dead and some are living, in my life I love them all
 
 ## 讲解
 
