@@ -156,9 +156,13 @@ racing with dog sledding, toboggan 雪橇
 
 # Day 60 Toboggan 
 
-it’s snowing, it’s beautiful, ~~around~~ we’re out in the middle ~~and~~ of nowhere. I’m freezing! And I’m about to be pulled by 8 dogs in a toboggan. Um, really, it’s doesn’t get ~~any~~ much more **Vermont** than this.
+it’s snowing, it’s beautiful, ~~around~~ **we’re out in** the middle ~~and~~ of nowhere. I’m freezing! And I’m about to be pulled by 8 dogs in a toboggan. Um, really, it’s doesn’t get ~~any~~ **much more** **Vermont** than this.
 
 ## 讲解
+
+we’re~out~in the middle~of~nowhere
+
+Vermont 佛蒙特州，这里的表达就是我们说的类似“这很成都，这很中国”
 
 
 
