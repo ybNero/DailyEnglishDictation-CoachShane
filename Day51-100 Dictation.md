@@ -217,17 +217,36 @@ lyrics, grammatically,
 
 sitcom, the king of queens, situation comedy
 
-# Day 64 
+ketchup, catsup 番茄酱
 
+# Day 64 ketchup or catsup
 
+**Douglas**, would you please pass the catsup?
+The what? 
+The catsup. 
+You mean the ketchup?
+Educated people pronounce it cat-sup.
+**Not if they want** me to pass **it** to them.
 
 ## 讲解
 
+a condiment 调味品, flavor our food
 
+根据前后能听出哪里是catsup和ketchup
+
+Not~if~they want me to pass~it~to them 比较难听得出前半句
+
+## 预告
+
+American novel, literature
+
+Samuel Clemens 塞缪尔·克莱门斯 （马克吐温本名）
+
+Tom Sawyer 汤姆索亚历险记
 
 # Day 65 
 
-
+Feb 18th,1885, mark tuwin the adventure of Huckle beckly fin, one of the greatest American novel, is first published in United States.
 
 ## 讲解
 
