@@ -186,7 +186,7 @@ hit -> come to arrive
 
 overweight -> obesity is a disease, deadly
 
-# Day 62 
+# Day 62 Overweight 
 
 According to the CDC, 2 out of every 3 Americans **are** considered either overweight or obese, and the trend towards unhealthy habits **is starting** even younger with **nearly** 20% children between **the age of** 6 and 11 ~~is~~ considered obese. 
 
@@ -198,15 +198,24 @@ CDC, The Center for Disease Control and Prevention
 
 约翰列侬, Beatles, In my life
 
-# Day 63 In my life
+# Day 63 In my life - Beatles
 
-there are places I remember, all my life those songs have changed, some forever I better, some have gone and some remain.
-
-all these places has their moments, we love our friends as soon as we call ,some are dead and some are living, in my life I love them all
+There are places I remember 
+All my life, ~~those songs~~ **though some** have changed
+Some forever, **not for** better
+Some have gone, and some remain.
+All these places had their moments
+**With** love**rs** **and** friends ~~as soon as we~~ **I still can re**call
+Some are dead and some are living
+In my life I**’ve** love them all
 
 ## 讲解
 
+lyrics, grammatically, 
+
 ## 预告
+
+sitcom, the king of queens, situation comedy
 
 # Day 64 
 
