@@ -244,21 +244,27 @@ Samuel Clemens 塞缪尔·克莱门斯 （马克吐温本名）
 
 Tom Sawyer 汤姆索亚历险记
 
-# Day 65 
+# Day 65 Mark Twain
 
-Feb 18th,1885, mark tuwin the adventure of Huckle beckly fin, one of the greatest American novel, is first published in United States.
+February 18th,1885, Mark Twain’s “The Adventures of Huckleberry Finn”, one of the greatest American novels, is first published in the United States.
 
 ## 讲解
 
+哈克贝利历险记
 
+## 预告
+
+Dr. Leonard Coldwell, a medical doctor, specialty on cancel treatment.
 
 # Day 66 
 
-
+86% of all  doctor visits and illness, statistically, are based on stress.
 
 ## 讲解
 
+doctor visits, 其实就`看病`的意思，短语名词
 
+statistically, 这里作为副词，注意前后逗号
 
 ## 预告
 
