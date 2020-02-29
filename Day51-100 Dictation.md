@@ -94,7 +94,7 @@ around~it 这里d和it连读很清晰
 
 cars accident, all are expensive cars, like Ferraris.
 
-# Day 57  car accident
+# Day 57  Car Accident
 
 It’s surely **in** the running for one of the most expensive **pile-ups** in highway history. These crumple**d** Ferraris **were** among 8 involved in the crash. 
 The airbags may have saved those inside from serious injury, but **oh~** what damages have been done to **bruise** the spirits of these ~~and~~ enthusia**sts** attached to their **sleek** sports cars.
@@ -256,7 +256,7 @@ February 18th,1885, Mark Twain’s “The Adventures of Huckleberry Finn”, one
 
 Dr. Leonard Coldwell, a medical doctor, specialty on cancel treatment.
 
-# Day 66 
+# Day 66 Doctor
 
 86% of all  doctor visits and illness, statistically, are based on stress.
 
@@ -272,25 +272,36 @@ introduction of the history of Mexico
 
 Hernando Cortes, a conquistador(征服者)
 
-# Day 67
+# Day 67 Mexico
 
 History is amazing. **What took** thousands of years to develop as great civilization, took a flash to change. When Hernando Cortex  and 550 man landed on the **Gulf** of Mexico in 1519, it took only a couple of years to forever change the land that is now Mexico.
 
 ## 讲解
 
+took a flash, 这里指时间很短暂, 对应的是took a lot of time.   (take -> require)
 
+## 预告
 
-# Day 68 
+Morse code,  telegraph
 
+# Day 68 Morse code
 
+Stop it!
+stop what?
+You’re talking about me in the mores code. But You know what? Jokes on you ‘cuz I know mores code. Ha!
 
 ## 讲解
 
+You’re -> yer
+talking~about  中间a省略了
 
+## 预告
 
-# Day 69 
+Numbers
 
+# Day 69 Numbers
 
+American electric power is currently below at its 15-day moving average at 40 dollar 28 cents and below 200-day moving average at 38 dollar 53 cents.
 
 ## 讲解
 
