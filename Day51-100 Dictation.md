@@ -268,11 +268,13 @@ statistically, 这里作为副词，注意前后逗号
 
 ## 预告
 
+introduction of the history of Mexico
 
+Hernando Cortes, a conquistador(征服者)
 
 # Day 67
 
-
+History is amazing. **What took** thousands of years to develop as great civilization, took a flash to change. When Hernando Cortex  and 550 man landed on the **Gulf** of Mexico in 1519, it took only a couple of years to forever change the land that is now Mexico.
 
 ## 讲解
 
