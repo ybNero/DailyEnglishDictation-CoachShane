@@ -301,11 +301,17 @@ Numbers
 
 # Day 69 Numbers
 
-American electric power is currently below at its 15-day moving average at 40 dollar 28 cents and below 200-day moving average at 38 dollar 53 cents.
+American **E**lectric **P**ower is currently below ~~at~~ its **50**-day moving average **of** 40 dollar 28 cents(\$40.28) and below **its** 200-day moving average of 38 dollar 53 cents(\$38.53).
 
 ## 讲解
 
+American Electric Power, 公司名
 
+这里讲的都是股价 stock price
+
+50-day moving average, 200-day MA, 股票股价的日均线、月均线；这里指50日移动均线和200日移动均线
+
+两处提到数字的前面有of，第一处连读很快过去了，第二处有停顿很清晰。即便第一处没听到，后边也应该回来修改。
 
 # Day 70 
 
