@@ -31,7 +31,7 @@ Wikipedia, new law for information
 
 # Day 53
 
-Anti-pira**c**y legistlation under consideration in Washington ha**s** (made) some websites in a **tizzy**. Wikipedia, **Boing Boing and Reddit** say they’ll have none of it **and are blacking out** their sites on Wednesday.
+Anti-pira**c**y legislation under consideration in Washington ha**s** (made) some websites in a **tizzy**. Wikipedia, **Boing Boing and Reddit** say they’ll have none of it **and are blacking out** their sites on Wednesday.
 
 ## 讲解
 
@@ -51,7 +51,7 @@ down under 特指澳大利亚; 南边;
 
 # Day 54
 
-There are usually about 3 shark attacks on people **in and around** Australia all year. In 2012, the coutry has seem 3 attacks already and January isn’t even ~~un~~finished, yet.
+There are usually about 3 shark attacks on people **in and around** Australia all year. In 2012, the country has seem 3 attacks already and January isn’t even ~~un~~finished, yet.
 
 ## 讲解
 
