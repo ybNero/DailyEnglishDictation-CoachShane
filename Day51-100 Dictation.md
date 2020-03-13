@@ -362,35 +362,35 @@ I have accomplished more in my life ~~that~~  **than** I**’ve** ever thought p
 
 ## 讲解
 
+than, 这里不是that, 其实还可以从前面的more去反推
 
+# Day 74 Child labor
 
-# Day 74 
-
-
-
-## 讲解
-
-
-
-## 预告
-
-
-
-# Day 75
-
-
+5.4 million children; Children who are  8,9 and 10 years of age who are being used to mined with their bare hands so you can text and play Angry birds. (33 words)
 
 ## 讲解
 
-
+mined with their bare hands, 用赤裸裸的手来挖矿
 
 ## 预告
 
+Seattle Seahawks
 
+# Day 75 Seahawks
+
+See you at the Seahawks’ 12k, 5k run or walk and Kids Dash April 1st. 
+
+## 讲解
+
+(We’ll) see you at … 这里相当是介绍节目 
+
+## 预告
+
+muffin,松糕  frosting, cupcake
 
 # Day 76 
 
-
+24 hours access to cup cake? It’s a nightmare for dieters, but this inventing concept is an advantage for sprinkle when it comes to cup cake competition.
 
 ## 讲解
 
