@@ -313,39 +313,52 @@ American Electric Power, 公司名
 
 两处提到数字的前面有of，第一处连读很快过去了，第二处有停顿很清晰。即便第一处没听到，后边也应该回来修改。
 
-# Day 70 
+## 预告
+
+birthday on February 29th  
+
+# Day 70 February 29th
+
+People born on February 29th on some previously **leap years** —— also known as “**leaplings**” —— they finally get to celebrate their real birthdays! (22 words)
 
 ## 讲解
 
-
+also known as, AKA
+get to  ->  are allowed to   ->  have the chance to
 
 ## 预告
 
+Google has a new privacy policy, it’s actually a advertisement. 
 
+# Day 71 Google
 
-# Day 71
-
-
-
-## 讲解
-
-
-
-# Day 72 
-
-
+You can ~~actually~~ **essentially** opt out ~~to~~ **of** the new policy by manually deleting your Google web history or by simply not signing in to sites like Gmail ~~or~~ **when** searching on Google
 
 ## 讲解
 
-
+essentially, basically
+opt out, refuse
 
 ## 预告
 
+making money out of doing favorite things
 
+# Day 72 Chocolate
+
+Everyone who comes **into** our shop ~~to~~ tells us ~~that~~ “you have the perfect life”, ~~then~~ **and** we say, “yeah, you know what,  we do we really do.” They go hand in hand —— books ~~some~~ **and** chocolate.
+
+## 讲解
+
+comes~into
+they go hand in hand, 这里指的是后边books和chocolate是标配的意思；举例：匹萨和可乐go hand in hand
+
+## 预告
+
+goals that you have successful at, called accomplishment.
 
 # Day 73
 
-
+I have accomplished more in my life ~~that~~  **than** I**’ve** ever thought possible.
 
 ## 讲解
 
@@ -507,7 +520,7 @@ American Electric Power, 公司名
 
 
 
-# Day 87 ❤❤❤
+# Day 87 
 
 
 
@@ -519,7 +532,7 @@ American Electric Power, 公司名
 
 
 
-# Day 88 Concert
+# Day 88 
 
 
 
@@ -543,126 +556,67 @@ American Electric Power, 公司名
 
 # Day 90
 
-31 words
 
-There’s **a wonderful** line I came across: If **you’ve** always done...or, **if** you always do what **you’ve** always done, **you’ll** always get **you’ve** always got. **It’s a brilliant** line.
 
 ## 讲解
 
-句中的you’ll 和 you’ve读得快的时候显然是不容易听出来的，只能靠句子的时态去补充；
 
-There’s~a 这里读的快实际上只能听到“the”的发音
-
-came across -> found 
-
-brilliant~line (t省读)
 
 ## 预告
 
-Christmas, Layaway(分期预付)
 
 
 
-# Day 41 Christmas layaway
 
-41 words
+# Day 91 
 
-Her story **has inspirared** others from Montana to Indiana to pay off the bills of complete strangers in theses days before Christmas. Holiday shoppers **who’ve** heard about the layaway Santas, say the sweeping acts of kindness have **restored** their faith **in** people.
+
 
 ## 讲解
 
-has inspirared 这里inspired最后d的发音没听到，但是音频中的明显停顿；
 
-**sweeping** ascts of kindness, 影响广泛的; 大范围的; 
-
-have~restored have的发音直接把**re**带过去了
 
 ## 预告
 
-Christmas poem
 
-# Day 42 Christmas poem
 
-41 words
+# Day 92 
 
-He **sprang** to his **sleigh** to his team gave **~~him~~** a whistle! And **away** they all flew like a down of a **thistle**. But I heard him exclaimed **as** he drove out of **~~the~~** sight “happy Christmas to all, and to all a good night!”
+
 
 ## 讲解
 
-He~spring to his~sleigh
 
-​	sprang -> spring 跳跃/弹簧
-
-​	sleigh: 雪橇; reindeer: 驯鹿
-
-[metaphor] like a down of a thistle 像蓟花的羽毛
 
 ## 预告
 
-Seinfield, sitcom(情景剧)
 
-a fortune teller
 
-# Day 43 《Seinfield》
+# Day 93 
 
-23 words
 
-E: Hey George, you know, my friend goes to a **psychic**,
-G: Really?
-E: Uh-huh. We should go sometime.
-G: I’d love to go. Make an appointment.
 
 ## 讲解
 
-**psychic**, a fortune teller
 
-different type of fortune teller: palm reader, tarot card reader, people who can look into a crystal ball...
-
-sometime 即有机会、下次；不同于sometimes
-
-make~an appointment, appointment中间那个t省读
-
-appointment和reservation
-
-​	appointment更倾向于consulting, 需要付钱的，跟人交流
-
-​	reservation更多是预定座位、酒店等；
 
 ## 预告
 
-Everybody loves Raymond, sitcom
-
-# Day 44 《Everybody loves Raymond》
 
 
+# Day 94 
 
-R: **Dad, I beat you.** Don’t you remember the Raymond Spinball?
 
-F: Ray, I learnt **~~the~~** **to** play in Korea.
 
-​	From Koreans. Do you think some **punk** kid’s gonna **actually** beat me?
 
-R: **No, dad**, you **were trying win**.You were sweating and **panting**.
-
-F: I’m a damn fine actor.
 
 ## 讲解
 
-Spinball, 这里其实是在开玩笑，说Raymond的“招式”——旋球，rocket: 乒乓球拍
 
-Do~you~think 这里读的极快
-
-some punk kid’s 这里的some并不是说一些，只是表示某个，所以kid用单数；
-
-...you were trying to win. You were... 这里to win读得很快，直接带到第二句you were
-
-sweating and panting 出汗和喘息
 
 ## 预告
 
-Seinfield
 
-A question we use almost everyday
 
 # Day 95 
 
@@ -674,7 +628,7 @@ A question we use almost everyday
 
 ## 预告
 
-French history
+
 
 # Day 96
 
@@ -702,7 +656,7 @@ French history
 
 ## 预告
 
-murderer investigation
+
 
 # Day 98 
 
