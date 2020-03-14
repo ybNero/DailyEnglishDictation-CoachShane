@@ -231,17 +231,13 @@ Educated people pronounce it cat-sup.
 ## 讲解
 
 a condiment 调味品, flavor our food
-
 根据前后能听出哪里是catsup和ketchup
-
 Not~if~they want me to pass~it~to them 比较难听得出前半句
 
 ## 预告
 
 American novel, literature
-
 Samuel Clemens 塞缪尔·克莱门斯 （马克吐温本名）
-
 Tom Sawyer 汤姆索亚历险记
 
 # Day 65 Mark Twain
@@ -263,13 +259,11 @@ Dr. Leonard Coldwell, a medical doctor, specialty on cancel treatment.
 ## 讲解
 
 doctor visits, 其实就`看病`的意思，短语名词
-
 statistically, 这里作为副词，注意前后逗号
 
 ## 预告
 
 introduction of the history of Mexico
-
 Hernando Cortes, a conquistador(征服者)
 
 # Day 67 Mexico
@@ -306,11 +300,8 @@ American **E**lectric **P**ower is currently below ~~at~~ its **50**-day moving 
 ## 讲解
 
 American Electric Power, 公司名
-
 这里讲的都是股价 stock price
-
 50-day moving average, 200-day MA, 股票股价的日均线、月均线；这里指50日移动均线和200日移动均线
-
 两处提到数字的前面有of，第一处连读很快过去了，第二处有停顿很清晰。即便第一处没听到，后边也应该回来修改。
 
 ## 预告
@@ -390,55 +381,67 @@ muffin,松糕  frosting, cupcake
 
 # Day 76 
 
-24 hours access to cup cake? It’s a nightmare for dieters, but this inventing concept is an advantage for sprinkle when it comes to cup cake competition.
+24-hour access to cupcakes? It’s a nightmare for dieters, but this **vending** concept is an advantage for Sprinkles when it comes to cupcake competition.
 
 ## 讲解
 
-
+Vending machine, 零售贩卖机
+vending concept, 零售概念
+Sprinkles, 这里是cupcake shop的名称
 
 ## 预告
 
+Sahara desert 撒哈拉沙漠
 
+# Day 77 Desert 
 
-# Day 77 
-
-
+Next we enter the White Desert ~~we are~~ where from a distance the ~~white strom~~ **limestone** looks like snow and rock piles like icebergs.
 
 ## 讲解
 
-
+from a distance, 表示从远处看
+limestone, 石灰岩
 
 ## 预告
 
+Curb your Enthusiasm
+etiquette, 礼仪
 
+# Day 78 Etiquette
 
-# Day 78 
-
-
+Call Jeff and tell him about this.
+No, wait, wait, what time is it?
+It’s 10:20.
+10 o’clock is cut-offt time. You don’t ~~copy black to change~~ call poeple after 10:00.
+No no no. The cut-off time is 10:30.
+10:00. You don’t call ~~to~~ **after** 10 o’clock.
+No, it’s 10:30!
 
 ## 讲解
 
-
+cut-off time, 营业截止时间
 
 ## 预告
 
-
+Cartoon, MTV, Daria, feminist, 女权主义者
+a realist
 
 # Day 79 
 
-
+Stand ~~from~~ **firm** for ~~where~~ **what** you believe ~~then~~ **in** until and **un**less **logic** and experience prove you wrong. Remember, when the emperor looks naked, the emperor is naked. The truth ~~or~~ and a liar are not sort of same thing.
 
 ## 讲解
 
-
+这里提到the emperor is nake是来自典故 The Emperor’s New Clothes
+believe~in, 这里连读导致听起来像believe then
 
 ## 预告
 
+Spain product
 
+# Day 80 Spain
 
-# Day 80 
-
-
+Oliv or the goat from lucia, Spain is the world’s biggest olive producer, and to lucia account for 80% Spain’s oil.
 
 ## 讲解
 
