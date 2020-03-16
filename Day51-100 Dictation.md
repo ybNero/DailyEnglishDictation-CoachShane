@@ -441,39 +441,43 @@ Spain product
 
 # Day 80 Spain
 
-Oliv or the goat from lucia, Spain is the world’s biggest olive producer, and to lucia account for 80% Spain’s oil.
+Olives are the **gold** **in Andalucía**, Spain is the world’s biggest olive **oil** producer, **Andalucía** accounts for 80% **Spanish** oil.
 
 ## 讲解
 
-
+Andalucía, famous olive plantation in Spain
+Olives~are 
+account for -> produce 在这里说Andalucía占了80%的西班牙橄榄油(产量), 即Andalucía生产了(produce)这么多橄榄油
 
 
 
 ## 预告
 
+Japan Doctor, Dr. Emoto, famous for his research on water and positive words.
+Another experiment on rice.
 
+# Day 81 Japanese doctor experiment
 
-# Day 81
-
-
+Dr. Emoto has conducted an interesting experiment. He places rice into 3 glass **beakers** and cover it with water. And then every day **for** a month he said “thank you” to one **beakers**,  “you are a idiot” to the second and the third one he completely ignored.  (46 words)
 
 ## 讲解
 
+beaker, 烧杯
 
 
 ## 预告
 
+Dean Kaman, inventor, invent a water purification system
 
+# Day 82 Inventor
 
-
-
-# Day 82 
-
-
+You know, most people think that the world is getting worse... ~~at~~ **that** the life of **their** children ~~can~~ **is gonna** be less **than** they had, but the fact **of the matter** is, the world is getting better at an extraordinary rate.
 
 ## 讲解
 
-
+most~people, 这里t不发音
+the life~of their
+better~at~an~extraordinary rate
 
 ## 预告
 
