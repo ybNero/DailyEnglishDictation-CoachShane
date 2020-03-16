@@ -481,35 +481,41 @@ better~at~an~extraordinary rate
 
 ## 预告
 
-
+Washington DC, in the spring time, cherry tree
 
 # Day 83
 
-
+In ~~the~~ a city **full** of show**y** sights, these are more humble creations standing by until that **stretch in** March and April when it is time to blossom. （27 words)
 
 ## 讲解
 
-
+showy, 理解成fancy即可
+Washington monument, Obelisk, the White House...
+sites和sights的区分, sites是specific location, 比如construction sites, historical sites.
+stretch这里指的是a period of time, 文中即March和April之间
 
 ## 预告
 
-
+estate 
 
 # Day 84 
 
-
+Trying is having ~~an~~ the intention to fail. You gotta ~~scratch~~ **scrap** the word from your vocab. Say **you’re gonna** do it, and you will.
 
 ## 讲解
 
-
+having the intention  ->  wanting, 这里表达的意识是一直说trying是很难成功的，以后别再这样说了，扎扎实实去做吧！
+scrap, 丢弃
+gotta, got to
+gonna, going to
 
 ## 预告
 
-
+missile, dilemma
 
 # Day 85  
 
-
+Well that, I think, ~~it~~ is a real ~~cracked~~ **crux** **of this** issue.
 
 ## 讲解
 
