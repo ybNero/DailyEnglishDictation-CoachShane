@@ -571,27 +571,34 @@ show compassion, 表现同情，反义词是apathy,表示漠不关心
 
 ## 预告
 
+London Olympic
+if you can be Olympic athlete, which event would you like to compete in?
+
 # Day 90
 
+1896, (music)the first modern Olympic Games opened in Athens, Greece——land of the ancent games ~~for~~ ——with athletes from 14 countries.
 
 
 ## 讲解
 
-
+这里有两个词的读音要注意，Athens，athlete
 
 ## 预告
 
-
+A television commercial, 
 
 
 
 # Day 91 
 
-
+My bad. 
+Tell me you have good insurance. 
+Yep, I got "Allstates".
+Really?
 
 ## 讲解
 
-
+重点看第二句, Tell me -> You had better, 你最好告诉我(你有一份好的保险)
 
 ## 预告
 
