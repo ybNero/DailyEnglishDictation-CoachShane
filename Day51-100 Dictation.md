@@ -599,48 +599,52 @@ Really?
 ## 讲解
 
 重点看第二句, Tell me -> You had better, 你最好告诉我(你有一份好的保险)
+Allstate, 好事达保险
 
 ## 预告
 
+Ryan Higa, Youtuber
 
 
 # Day 92 
 
-
+The point is, you should get to know a person first, then judge them. You should never judge a book by its cover. Judge **it** by the ~~among~~ amount of pages.
 
 ## 讲解
 
-
+judge~it, 连读
 
 ## 预告
 
+"Teen idol", great song, cherish
 
 
 # Day 93 
 
-
+I ~~have a~~ **had it in** ~~space~~ spades on both sides, it came really natural to me.
 
 ## 讲解
 
-
+I had it in spades, **it** refers to musical, performing talent, in spades表示无疑地, definitely
+这里on both sides, 指的是他从父母双方都有遗传到优良的天赋/基因
 
 ## 预告
 
-
+Tommy, guitar player
 
 # Day 94 
 
 
-
+It takes a lot of work. You have to word every day on it. And them ~~It's~~ that's not a downside. There isn't a downside, really.
 
 
 ## 讲解
 
-
+downside, 缺点
 
 ## 预告
 
-
+conversion on the phone, telemarketer
 
 # Day 95 
 
