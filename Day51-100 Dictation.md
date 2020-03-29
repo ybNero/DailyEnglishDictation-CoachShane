@@ -68,14 +68,14 @@ We hoped **that** they **could** ~~plan on~~ find something that would sustain t
 
 ## 讲解
 
-10-year-old 这里其实没听到years的s发音，应该反应过来。
+10-year-old 这里其实没听到years的s发音，但是知道是词组的话应该反应过来。
 late brother -> deceased/dead brother
 sustain sb through the lost, 这里sustain是“支持, 维持”的意思
 **conundrum** n. a confusing/difficult problem!
 
 # Day 56
 
-**You** sold us a hair with a cake around it?
+**You** sold us a hair with a cake around it? 
 
 ## 讲解
 
@@ -648,7 +648,10 @@ conversion on the phone, telemarketer
 
 # Day 95 
 
-
+Hello.
+Oh,gee, I can't talk right now. Why don't you give me your home number and I'll call you later.
+Oh I guess you don't want people calling you at home?
+Well, now ~~I let~~ you konw how I feel.
 
 ## 讲解
 

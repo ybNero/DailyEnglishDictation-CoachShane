@@ -75,7 +75,7 @@ sustain sb through the lost, 这里sustain是“支持, 维持”的意思
 
 # Day 56
 
-**You** sold us a hair with a cake around it? 
+**You** sold us a hair with a cake around it?
 
 ## 讲解
 
