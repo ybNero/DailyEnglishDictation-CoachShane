@@ -648,17 +648,20 @@ conversion on the phone, telemarketer
 
 # Day 95 
 
-Hello.
-Oh,gee, I can't talk right now. Why don't you give me your home number and I'll call you later.
-Oh I guess you don't want people calling you at home?
-Well, now ~~I let~~ you konw how I feel.
+Hello?
+Oh, gee, I can't talk right now. Why don't you give me your home number and I'll call you later.
+Oh, I guess you don't want people calling you at home?
+Well, now ~~I let~~ you know how I feel.
 
 ## 讲解
 
-
+gee, 这里是个口头禅而已
+can‘t~talk, 这里连读虽然can't发音跟can一样，但是音调不同，can↓ can't↑
+give me  ->  gimme
 
 ## 预告
 
+downside, negative aspect
 
 
 # Day 96
