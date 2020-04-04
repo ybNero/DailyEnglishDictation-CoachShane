@@ -662,11 +662,15 @@ give me  ->  gimme
 ## 预告
 
 downside, negative aspect
-
+animal crackers, a product of cookies
+what’s the difference between crackers and cookies?
 
 # Day 96
 
-
+Hey, you got anything to eat?
+Yeah, try ~~this~~ **these**.
+I’m ~~don’t~~ not eat that kids stuff.
+Just try **them**.
 
 ## 讲解
 
