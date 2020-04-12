@@ -670,45 +670,46 @@ what’s the difference between crackers and cookies?
 Hey, you got anything to eat?
 Yeah, try ~~this~~ **these**.
 I’m ~~don’t~~ not eat that kids stuff.
-Just try **them**.
+Just try ~~it~~ **them**.
 
 ## 讲解
 
-
-
-
+stuff, 口语中常用, 替换thing, 用来形容各种各样的“东西”, uncountable, tangible, intangible
 
 ## 预告
 
-
+Bruce Willis 布鲁斯威利斯
 
 # Day 97 
 
-
+We ~~are~~ were supposed to meet today, but I missed our appointment. Sorry.
 
 ## 讲解
 
+supposed~to, 省略ed的发音
+meet~today, 发音把前面的t省略, mee~today
 
+## 预告
 
+Black panther, 黑豹
+The cheetah, 猎豹
 
+# Day 98  The cheetah
+
+The cheetah excels ~~and~~ **at** acceleration. It**‘s** **the** sports car ~~as this~~ of the savannah. 
+
+## 讲解
+
+excel at sth -> be good at sth  擅长
+区别accept(ə), except(ɪ)的发音
+savannah is not like forest or jungle that has canopies that block the sun.
+猎豹的栖息地: 坦桑尼亚的塞伦盖蒂平原 Serengeti
 
 ## 预告
 
 
 
-# Day 98 
-
-
-
-## 讲解
-
-
-
-## 预告
-
-
-
-# Day 99 
+# Day 99 Leonardo da Vici
 
 
 
