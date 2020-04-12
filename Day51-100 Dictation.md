@@ -691,7 +691,6 @@ meet~today, 发音把前面的t省略, mee~today
 
 ## 预告
 
-Black panther, 黑豹
 The cheetah, 猎豹
 
 # Day 98  The cheetah
@@ -705,24 +704,35 @@ excel at sth -> be good at sth  擅长
 savannah is not like forest or jungle that has canopies that block the sun.
 猎豹的栖息地: 坦桑尼亚的塞伦盖蒂平原 Serengeti
 
+Black panther, 黑豹
+jaguar 美洲虎, leopard 美洲豹
+vegetarian 素食主义者
+
 ## 预告
 
-
+polymath 全才
+Leonardo’s teacher
 
 # Day 99 Leonardo da Vici
 
-
+It is only the ~~median~~ **mediocre** pupil **who does** not surpass **his** master Leonardo ~~rights~~ **writes**. ~~A~~ **And** legend has it, that **Verrocchio**, after seeing Leonardo’s angle, never painted again.
 
 ## 讲解
 
-
+mediocre pupil  ->  average(a little below average actually) student 
+**Verrocchio**, 韦罗基奥
 
 ## 预告
 
-# Day 100 
+Shane‘s home state Wisconsin
+one of the popular sports is  canoeing, or paddling
 
+# Day 100 Canoeing
 
+(32 words)
+~~What~~ **Whether** they’re new to the world of paddling or **a seasoned veteran**, **you’re sure to find this video paddling guidebook** helpful **in your quest to find** new and exciting ~~reverse~~ **rivers** to explore.
 
 ## 讲解
 
-
+whether引出后面对比，但是这里whether和they是不是有连读? 我没听出来whether
+a seasoned veteran, 这里我听到了veteran(老手、老兵)跟前面new对应，这里seasoned表示**经验丰富的**；
