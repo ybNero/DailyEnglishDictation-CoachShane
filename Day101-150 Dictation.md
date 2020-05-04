@@ -1,20 +1,19 @@
-# Daily English Dictation #51~#100
+# Daily English Dictation #101~#150
 
 
- # Day 51 
+ # Day 101 
 
-**There’s** people running and walking their dogs **and** having brunch on the **patios**.
+
 
 ## 讲解
 
-there’s 容易听成 first
-patio, 平台/露台(不同于yards，有桌椅的吃饭区域)
+
 
 ## 预告
 
 civil rights
 
-# Day 52
+# Day 102
 
 > VOA
 
@@ -28,7 +27,7 @@ Martin Luther King, Jr.**’s** **rise** as a civil rights leader began at 1955 
 
 Wikipedia, new law for information
 
-# Day 53
+# Day 103
 
 Anti-pira**c**y legislation under consideration in Washington ha**s** (made) some websites in a **tizzy**. Wikipedia, **Boing Boing and Reddit** say they’ll have none of it **and are blacking out** their sites on Wednesday.
 
@@ -48,7 +47,7 @@ shark attack
 
 down under 特指澳大利亚; 南边;
 
-# Day 54
+# Day 104
 
 There are usually about 3 shark attacks on people **in and around** Australia all year. In 2012, the country has seem 3 attacks already and January isn’t even ~~un~~finished, yet.
 
@@ -61,7 +60,7 @@ in and around town 在城里及周围, 城里和周边地区;
 tattoos
 But what if the government said you CAN’T have a tattoo?
 
-# Day 55 Tattoo
+# Day 105 Tattoo
 
 A **Georgia** mother ~~has~~ says she was arrested for allowing her 10-year-old son to get a tattoo in memory of his late brother.  
 We hoped **that** they **could** ~~plan on~~ find something that would sustain them ~~to their~~ **through that** lost, but this is not the way.(44 words)
@@ -73,7 +72,7 @@ late brother -> deceased/dead brother
 sustain sb through the lost, 这里sustain是“支持, 维持”的意思
 **conundrum** n. a confusing/difficult problem!
 
-# Day 56
+# Day 106
 
 **You** sold us a hair with a cake around it?
 
@@ -86,7 +85,7 @@ around~it 这里d和it连读很清晰
 
 cars accident, all are expensive cars, like Ferraris.
 
-# Day 57  Car Accident
+# Day 107  
 
 It’s surely **in** the running for one of the most expensive **pile-ups** in highway history. These crumple**d** Ferraris **were** among 8 involved in the crash. 
 The airbags may have saved those inside from serious injury, but **oh~** what damages have been done to **bruise** the spirits of these ~~and~~ enthusia**sts** attached to their **sleek** sports cars.
@@ -102,7 +101,7 @@ sleek sports car  线条流畅的; 造型优美的; Aerodynamic
 
 Frasier, Lilith, Dad
 
-# Day 58 
+# Day 108 
 
 Hey, Lilith, sorry for the holdup, but **Frasier** ~~you~~ should **be** back **from the dentist any** minute.
 Oh, ~~alright~~ **all right**. That will give us **a** chance to visit.
@@ -123,7 +122,7 @@ give~us~a chance
 
 Titanic sunk, iceberg.
 
-# Day 59 
+# Day 109 
 
 51 words
 
@@ -143,7 +142,7 @@ a manual can opener, 这里manual容易听成9-year-old，有点尴尬
 
 racing with dog sledding, toboggan 雪橇
 
-# Day 60 Toboggan 
+# Day 110 
 
 it’s snowing, it’s beautiful, ~~around~~ **we’re out in** the middle ~~and~~ of nowhere. I’m freezing! And I’m about to be pulled by 8 dogs in a toboggan. Um, really, it’s doesn’t get ~~any~~ **much more** **Vermont** than this.
 
@@ -159,7 +158,7 @@ Beatles
 
 What's your favorite Beatles song？
 
-# Day 61 Beatles
+# Day 111 
 
 Feb 9th, 1964, Beatlemania hits prime time in the United States.
 
@@ -175,7 +174,7 @@ hit -> come to arrive
 
 overweight -> obesity is a disease, deadly
 
-# Day 62 Overweight 
+# Day 112  
 
 According to the CDC, 2 out of every 3 Americans **are** considered either overweight or obese, and the trend towards unhealthy habits **is starting** even younger with **nearly** 20% children between **the age of** 6 and 11 ~~is~~ considered obese. 
 
@@ -187,7 +186,7 @@ CDC, The Center for Disease Control and Prevention
 
 约翰列侬, Beatles, In my life
 
-# Day 63 In my life - Beatles
+# Day 113 
 
 There are places I remember 
 All my life, ~~those songs~~ **though some** have changed
@@ -208,7 +207,7 @@ sitcom, the king of queens, situation comedy
 
 ketchup, catsup 番茄酱
 
-# Day 64 ketchup or catsup
+# Day 114 
 
 **Douglas**, would you please pass the catsup?
 The what? 

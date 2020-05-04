@@ -736,3 +736,8 @@ one of the popular sports is  canoeing, or paddling
 
 whether引出后面对比，但是这里whether和they是不是有连读? 我没听出来whether
 a seasoned veteran, 这里我听到了veteran(老手、老兵)跟前面new对应，这里seasoned表示**经验丰富的**；
+
+## 预告
+
+health topic
+a can of Pepsi,  corn syrup(玉米糖浆)
