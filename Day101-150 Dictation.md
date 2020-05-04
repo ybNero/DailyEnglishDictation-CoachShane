@@ -3,49 +3,43 @@
 
  # Day 101 
 
-
+why not be ~~fake~~ **safe**? 
+why take a chance?
 
 ## 讲解
 
-
+这里其实是反问句的表达, 也可以用Let's来表达;
+这里的sale其实是在讲食品安全, BPA, Bisphenol A(双酚A, 食品级塑料薄膜) 
+human body see BPA as female hormone estrogen(雌激素)
+make the male become more feminine(女性化)
 
 ## 预告
 
-civil rights
+YouTube star, musically talented
 
 # Day 102
 
-> VOA
-
-Martin Luther King, Jr.**’s** **rise** as a civil rights leader began at 1955 **when** he spearheaded the drive to desegregate public buses in **Montgomery**, Alabama.
+That’s why this weekend is Earth day. Not your birthday. Don’t get it twisted. Earth day.
 
 ## 讲解
 
-父子孙 -> Senior Jr, 3th
+
 
 ## 预告
 
-Wikipedia, new law for information
+
 
 # Day 103
 
-Anti-pira**c**y legislation under consideration in Washington ha**s** (made) some websites in a **tizzy**. Wikipedia, **Boing Boing and Reddit** say they’ll have none of it **and are blacking out** their sites on Wednesday.
+
 
 ## 讲解
 
-Anti-piracy 反剽窃 (pirated 剽窃的)
 
-in a tizzy (feeling very nervous or confused)
-
-Wikipedia, **Boing Boing**(科技信息博客) and **Reddit**(国外著名论坛)
-
-blacking out  -> blocking out
 
 ## 预告
 
-shark attack 
 
-down under 特指澳大利亚; 南边;
 
 # Day 104
 
