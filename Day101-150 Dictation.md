@@ -19,23 +19,22 @@ YouTube star, musically talented
 
 # Day 102
 
-That’s why this weekend is Earth day. Not your birthday. Don’t get it twisted. Earth day.
+~~That’s why~~ **That’s right!** This weekend is Earth Day! Not your birthday. Don’t get it twisted. Earth day.
 
 ## 讲解
 
+Not~your
 
-
-## 预告
-
-
+## 预告		
 
 # Day 103
 
-
+If people fail a test, she you can do two things; 
+you can make ~~a~~ **the** people smarter or your can make the test easier.
 
 ## 讲解
 
-
+这里if是虚拟语气，can应该用could
 
 ## 预告
 
