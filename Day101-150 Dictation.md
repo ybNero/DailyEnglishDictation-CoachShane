@@ -38,45 +38,47 @@ you can make ~~a~~ **the** people smarter or your can make the test easier.
 
 ## 预告
 
-
+situation comedy
+a father in law and his son, they are ordering a pizza on the phone.
 
 # Day 104
 
-There are usually about 3 shark attacks on people **in and around** Australia all year. In 2012, the country has seem 3 attacks already and January isn’t even ~~un~~finished, yet.
+OK,ready?
+I’m ready.
+1-1-6-8...
+OK, and you know what? **How about** a little **phone number** rhythm ~~number~~, huh? You know? A little bum bum bum, you got it?
+I got it.
+OK.
+1, yeah. 6, yep, teen...
+I’ve already dial on 6, I can’t go back **in time and** ~~sleep~~ **slip** ~~on one hand~~ a 1 in.
 
 ## 讲解
 
-in and around town 在城里及周围, 城里和周边地区;
+
 
 ## 预告
 
-tattoos
-But what if the government said you CAN’T have a tattoo?
 
-# Day 105 Tattoo
 
-A **Georgia** mother ~~has~~ says she was arrested for allowing her 10-year-old son to get a tattoo in memory of his late brother.  
-We hoped **that** they **could** ~~plan on~~ find something that would sustain them ~~to their~~ **through that** lost, but this is not the way.(44 words)
+# Day 105 
+
+
 
 ## 讲解
 
-10-year-old 这里其实没听到years的s发音，应该反应过来。
-late brother -> deceased/dead brother
-sustain sb through the lost, 这里sustain是“支持, 维持”的意思
-**conundrum** n. a confusing/difficult problem!
+
 
 # Day 106
 
-**You** sold us a hair with a cake around it?
+
 
 ## 讲解
 
-sold~us~a~hair 注意听sold的d和us连读
-around~it 这里d和it连读很清晰
+
 
 ## 预告
 
-cars accident, all are expensive cars, like Ferraris.
+
 
 # Day 107  
 
