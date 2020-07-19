@@ -68,10 +68,10 @@ interviewing a man on the street
 no pain, (no shame) no gain.
 
 
-# Day 105 
+# Day 105 Street Interview
 
 ~~hi~~ Alright, what's your name?
-I'm Karl **Fuentes**. (这是一个西班牙名)
+I'm Karl **Fuentes**. 
 Karl. Karl with ~~the~~ a "K", correct?
 Yep, Karl with a "K".
 Karl with a "K", a bird in a hand is worth...
@@ -85,13 +85,16 @@ Karl, Carl, 这两个都比较常见, 所以有区分。(比如Peterson和Peders
 Be happy with what you have. Don't be to gredy.
 **A bird in a hand is worth two in the bush.**
 
-# Day 106
+# Day 106 
 
-
+奥朗德, become the new Franch President.
+萨科齐输给了奥朗德
+奥朗德 is a socialism president.
+understand the story and then work on the words
 
 ## 讲解
 
-
+One of his trips will be to the US quanado summit where he will anounce he is pulling Franch troops out of 阿富汗 by the end of the year.
 
 ## 预告
 
