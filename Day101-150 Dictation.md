@@ -45,7 +45,7 @@ a father in law and his son, they are ordering a pizza on the phone.
 
 OK,ready?
 I’m ready.
-1-1-6-8...
+1-1-6-8...(one,one,sixty-eight)
 OK, and you know what? **How about** a little **phone number** rhythm ~~number~~, huh? You know? A little bum bum bum, you got it?
 I got it.
 OK.
@@ -54,19 +54,36 @@ I’ve already dial on 6, I can’t go back **in time and** ~~sleep~~ **slip** ~
 
 ## 讲解
 
-
+所以这里报的号码是116;电话另一头先报了1，然后6，结果发现是16(sixteen)，以前的电话是转轮拨号电话。
+ready -> (are you) ready
+不同国家地区，有不同的报电话号码的方式（数字间隔），如xxx-xxxx，xxxx-xxxx；
+how~about~a
+slip in -> 悄悄地进来；这里说的can't slip a 1 in想表达的是来不及再输入1了。
 
 ## 预告
 
+a late night talk show -- the tonight show
+the host has a huge chin
+interviewing a man on the street
+no pain, (no shame) no gain.
 
 
 # Day 105 
 
-
+~~hi~~ Alright, what's your name?
+I'm Karl **Fuentes**. (这是一个西班牙名)
+Karl. Karl with ~~the~~ a "K", correct?
+Yep, Karl with a "K".
+Karl with a "K", a bird in a hand is worth...
+a million?
+No.
 
 ## 讲解
 
-
+Fuentes, 这是一个西班牙名
+Karl, Carl, 这两个都比较常见, 所以有区分。(比如Peterson和Pederson, Steve和Stephen)
+Be happy with what you have. Don't be to gredy.
+**A bird in a hand is worth two in the bush.**
 
 # Day 106
 
