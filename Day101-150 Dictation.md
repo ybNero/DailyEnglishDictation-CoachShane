@@ -87,14 +87,14 @@ Be happy with what you have. Don't be to gredy.
 
 # Day 106 
 
-奥朗德, become the new Franch President.
+奥朗德, become the new French President.
 萨科齐输给了奥朗德
 奥朗德 is a socialism president.
 understand the story and then work on the words
 
 ## 讲解
 
-One of his trips will be to the US quanado summit where he will anounce he is pulling Franch troops out of 阿富汗 by the end of the year.
+One of his trips will be to the US quanado summit where he will announce he is pulling French troops out of 阿富汗 by the end of the year.
 
 ## 预告
 
