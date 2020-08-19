@@ -85,32 +85,38 @@ Karl, Carl, 这两个都比较常见, 所以有区分。(比如Peterson和Peders
 Be happy with what you have. Don't be to gredy.
 **A bird in a hand is worth two in the bush.**
 
-# Day 106 
+## 预告
 
 奥朗德, become the new French President.
 萨科齐输给了奥朗德
 奥朗德 is a socialism president.
 understand the story and then work on the words
 
+# Day 106 French Troops
+
+One of his **1st** trips will be to the US ~~quanado~~ **for a  NATO** summit where he will announce **that**  he is pulling French troops out of Afghanistan by the end of the year.
+
 ## 讲解
 
-One of his trips will be to the US quanado summit where he will announce he is pulling French troops out of 阿富汗 by the end of the year.
+- troops, soldiers
+
+- summit, a sort of high level meeting
 
 ## 预告
 
+advertising hero, TED talk (tech, entertainment, design), 
 
+cocktail party, talk about different people, said a bad word
 
 # Day 107  
 
-It’s surely **in** the running for one of the most expensive **pile-ups** in highway history. These crumple**d** Ferraris **were** among 8 involved in the crash. 
-The airbags may have saved those inside from serious injury, but **oh~** what damages have been done to **bruise** the spirits of these ~~and~~ enthusia**sts** attached to their **sleek** sports cars.
+When you can't somke, if you stand out of the window on your own, you are an anti-social friendless idiot.
+
+if you stand upstair alone by the window with a cigarret, you are a fucking filosifer.
 
 ## 讲解
 
-pile-ups  -> crashes, accidents
-crumpled,  压皱的（车祸导致车体受挤压）
-bruise the spirits/egos  拟人化的表达，指自尊受到伤害
-sleek sports car  线条流畅的; 造型优美的; Aerodynamic
+
 
 ## 预告
 
