@@ -108,11 +108,11 @@ advertising hero, TED talk (tech, entertainment, design),
 
 cocktail party, talk about different people, said a bad word
 
-# Day 107  
+# Day 107  Cocktail party talk
 
-When you can't somke, if you stand out of the window on your own, you are an anti-social friendless idiot.
+When you can't somke, if you stand **and stare** out of the window on your own, you are an anti-social friendless idiot.
 
-if you stand upstair alone by the window with a cigarret, you are a fucking filosifer.
+If you stand ~~upstair~~ and stare ~~alone by~~ **out of**  the window **on your own** with a cigarret, you are a fucking philosopher!
 
 ## 讲解
 
