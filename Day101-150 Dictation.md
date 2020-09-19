@@ -184,7 +184,7 @@ trying to be environmental friendly, carbon footprint
 
 # Day 112  
 
-According to the CDC, 2 out of every 3 Americans **are** considered either overweight or obese, and the trend towards unhealthy habits **is starting** even younger with **nearly** 20% children between **the age of** 6 and 11 ~~is~~ considered obese. 
+obese. 
 
 ## 讲解
 
@@ -196,14 +196,7 @@ CDC, The Center for Disease Control and Prevention
 
 # Day 113 
 
-There are places I remember 
-All my life, ~~those songs~~ **though some** have changed
-Some forever, **not for** better
-Some have gone, and some remain.
-All these places had their moments
-**With** love**rs** **and** friends ~~as soon as we~~ **I still can re**call
-Some are dead and some are living
-In my life I**’ve** love them all
+
 
 ## 讲解
 
