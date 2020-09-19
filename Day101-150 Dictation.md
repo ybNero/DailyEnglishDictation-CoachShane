@@ -143,7 +143,7 @@ preposition 介词 by, near
 
 # Day 109 Basel
 
-One of the ~~Swiss land~~ **Switzerland’s** predominant cities Basel(巴塞尔?)  sits on the Swiss ~~boarder~~ border of France and Germany.
+One of the ~~Swiss land~~ **Switzerland’s** predominant cities Basel(巴塞尔?)  sits on the Swiss ~~boarder~~ **border** of France and Germany.
 
 ## 讲解
 
@@ -151,35 +151,36 @@ One of the ~~Swiss land~~ **Switzerland’s** predominant cities Basel(巴塞尔
 
 ## 预告
 
-扎克伯格, Facebook, IPO Initial Pubic Offering
+扎克伯格, Mark Zuckerberg, Facebook, birthday and upcoming IPO (Initial Pubic Offering)
 
-# Day 110 
+# Day 110 Facebook
 
+Even from really early on, we are just building one thing for once school, there could be once won’t sure that we gonna be the ones who did it.
 
+Even from very **early** on when we **were** just building this thing for, for one school, there was this **concept** of what it could **turn into**. We just weren’t sure **then** that we would be the ones who did it.
 
 ## 讲解
 
-
+- from early on, from the beginning 
+- the ones, people, community
+- then 这里指代句首的early on
 
 ## 预告
 
-
+KPMG, actually a Swiss company, consulting business.
+trying to be environmental friendly, carbon footprint
 
 # Day 111 
 
-Feb 9th, 1964, Beatlemania hits prime time in the United States.
+
 
 ## 讲解
 
-Beatlemania 狂热，类似这样的表达——Linsanity
 
-hit prime time, 之前学到过类似的表达
-
-hit -> come to arrive
 
 ## 预告
 
-overweight -> obesity is a disease, deadly
+
 
 # Day 112  
 
