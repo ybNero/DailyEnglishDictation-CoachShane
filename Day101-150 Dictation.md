@@ -170,13 +170,14 @@ Even from very **early** on when we **were** just building this thing for, for o
 KPMG, actually a Swiss company, consulting business.
 trying to be environmental friendly, carbon footprint
 
-# Day 111 
+# Day 111  KPMG footage
 
-
+Keeping future resources intact, means keeping present consumption in check, and that’s why we promote green ways of living and working.
 
 ## 讲解
 
-
+- intact, 完整的
+- in check, 这里实际上是keep sth in check, 制止，阻止，约束的意思
 
 ## 预告
 
