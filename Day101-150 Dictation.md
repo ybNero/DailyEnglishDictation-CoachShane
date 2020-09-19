@@ -110,74 +110,60 @@ cocktail party, talk about different people, said a bad word
 
 # Day 107  Cocktail party talk
 
-When you can't somke, if you stand **and stare** out of the window on your own, you are an anti-social friendless idiot.
+When you can't smoke, if you stand **and stare** out of the window on your own, you are an anti-social, friendless, idiot.
 
-If you stand ~~upstair~~ and stare ~~alone by~~ **out of**  the window **on your own** with a cigarret, you are a fucking philosopher!
-
-## 讲解
-
-
-
-## 预告
-
-Frasier, Lilith, Dad
-
-# Day 108 
-
-Hey, Lilith, sorry for the holdup, but **Frasier** ~~you~~ should **be** back **from the dentist any** minute.
-Oh, ~~alright~~ **all right**. That will give us **a** chance to visit.
+If you stand ~~upstair~~ and stare ~~alone by~~ **out of**  the window **on your own** with a **cigarette**, you are a fucking philosopher!
 
 ## 讲解
 
-holdup -> delay
-
-the dentist~any minute 这里是全句最难听懂的呃点
-
-alright和all right的区别
-
-give~us~a chance
+- on~your~own
+- out~of the
+- with~a (这里a会听起来像the)
 
 ## 预告
 
-莱昂纳多·迪卡普里奥 Leonardo DiCaprio
+dr. House 《豪斯医生》television medical drama
 
-Titanic sunk, iceberg.
+dr. Wilson, bromance 兄弟情, great friendship
 
-# Day 109 
+# Day 108 DR. House
 
-51 words
-
-**This** iceberg here, there’s **outcroppings** under the water. And the sea ice, iceberg ice is very hard, so **it’s almost like,** it could be almost **be** like a **can opener**. And probably the Titanic went by it, it just sliced a hole in it like **you** would with a manual can opener!
+House: ~~you~~ Gonna eat that?
+Wilson: ~~haven’t~~ Have at ~~that~~ it. Did you just ask my permission ~~to~~ before you took my food?
 
 ## 讲解
 
-outcroppings, 露头(露出地面的大片岩层)
-
-sea ice, iceberg ice, 
-
-it just~sliced a hole~in~it
-
-a manual can opener, 这里manual容易听成9-year-old，有点尴尬
+- Gonna -> Are you going to
+- Have at it -> help yourself / go ahead
 
 ## 预告
 
-racing with dog sledding, toboggan 雪橇
+a location of a city, 欧洲城市 
+preposition 介词 by, near
+
+# Day 109 Basel
+
+One of the ~~Swiss land~~ **Switzerland’s** predominant cities Basel(巴塞尔?)  sits on the Swiss ~~boarder~~ border of France and Germany.
+
+## 讲解
+
+- sit on, lie on, near, by 在描述位置的时候经常会用
+
+## 预告
+
+扎克伯格, Facebook, IPO Initial Pubic Offering
 
 # Day 110 
 
-it’s snowing, it’s beautiful, ~~around~~ **we’re out in** the middle ~~and~~ of nowhere. I’m freezing! And I’m about to be pulled by 8 dogs in a toboggan. Um, really, it’s doesn’t get ~~any~~ **much more** **Vermont** than this.
+
 
 ## 讲解
 
-we’re~out~in the middle~of~nowhere
 
-Vermont 佛蒙特州，这里的表达就是我们说的类似“这很成都，这很中国”
 
 ## 预告
 
-Beatles
 
-What's your favorite Beatles song？
 
 # Day 111 
 
