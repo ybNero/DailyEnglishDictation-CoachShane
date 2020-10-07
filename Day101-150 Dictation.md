@@ -181,19 +181,23 @@ Keeping future resources intact, means keeping present consumption in check, and
 
 ## 预告
 
-
+should walking and texting be illegal? 
+texting in walking & texting in driving
 
 # Day 112  
 
-obese. 
+It is ~~madness~~ **maddening** —— texting while walking. One town **is saying it is time to** level fine**s** ~~to~~ against poeple who walk into the streets heads down everybody else trying to dodge them.
 
 ## 讲解
 
-CDC, The Center for Disease Control and Prevention
+- **maddening**  -》 frustrating
+- level fines against people -》 give fine to people
+- who walk into the streets (with their) heads down
+- dodge -》 avoid
 
 ## 预告
 
-约翰列侬, Beatles, In my life
+
 
 # Day 113 
 
@@ -201,42 +205,31 @@ CDC, The Center for Disease Control and Prevention
 
 ## 讲解
 
-lyrics, grammatically, 
+
 
 ## 预告
 
-sitcom, the king of queens, situation comedy
 
-ketchup, catsup 番茄酱
 
 # Day 114 
 
-**Douglas**, would you please pass the catsup?
-The what? 
-The catsup. 
-You mean the ketchup?
-Educated people pronounce it cat-sup.
-**Not if they want** me to pass **it** to them.
+
 
 ## 讲解
 
-a condiment 调味品, flavor our food
-根据前后能听出哪里是catsup和ketchup
-Not~if~they want me to pass~it~to them 比较难听得出前半句
+
 
 ## 预告
 
-American novel, literature
-Samuel Clemens 塞缪尔·克莱门斯 （马克吐温本名）
-Tom Sawyer 汤姆索亚历险记
 
-# Day 65 Mark Twain
 
-February 18th,1885, Mark Twain’s “The Adventures of Huckleberry Finn”, one of the greatest American novels, is first published in the United States.
+# Day 115 
+
+
 
 ## 讲解
 
-哈克贝利历险记
+
 
 ## 预告
 
