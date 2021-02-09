@@ -201,7 +201,9 @@ It is ~~madness~~ **maddening** —— texting while walking. One town **is sayi
 
 # Day 113 
 
+May 24th Memo day
 
+Post it super sticky notes, hold on stronger and longer, but of course, remove clearly.
 
 ## 讲解
 
