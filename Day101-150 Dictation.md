@@ -203,7 +203,77 @@ It is ~~madness~~ **maddening** —— texting while walking. One town **is sayi
 
 May 24th Memo day
 
-Post it super sticky notes, hold on stronger and longer, but of course, remove clearly.
+**Post-It Super Sticky Notes**, hold on stronger and longer, but of course, remove clearly.
+
+## 讲解
+
+- Post-It Super Sticky Notes，这个实际上是个产品名称，所以首字母都大写
+
+## 预告
+
+finger wrestling
+
+# Day 114  finger wrestling
+
+When it comes to figuring out ~~feature~~ **feats of** strength, it is all in the fingers here.
+
+## 讲解
+
+- When it comes to v+ing / n. -> Regarding n.
+- feats of  -> accomplishments
+
+## 预告
+
+ordering coffee, how to describe the size 
+
+# Day 115 sitcom 弗雷泽
+
+I think I could use some black coffee.
+What size do you like?
+Um, I**'ve** got ~~like~~ **a lot to ponder**, **so** I think **a** large.
+I**'m** afraid we don't have large, sir. We have ~~pickle low, much out~~ piccolo, macho, mucho and mucho macho!  
+
+## 讲解
+
+- 这里为啥用use？感觉像“用药”的感觉，所以细微体会，应该是他太累了。
+- ponder  -> think about
+
+## 预告
+
+Jungle boy
+
+# Day 116 Jungle boy
+
+I don't trust anyone anymore.
+I don't blame you. I am not like those ~~so cold~~ **so-called** ~~fare-weather~~ fair-weather friend of ~~you~~ **yours**. You can believe in me.
+
+## 讲解
+
+- I don't blame you -> It's not your fault
+- fair-weather friend, people who are your friend when the weather is nice. 
+- so-called -> as they say -> quotation “”
+
+## 预告
+
+
+
+# Day 117 
+
+Ted I just want to ask it, do you believe in the after life?
+Do I pass?
+Deep believe in the after life.
+generally speaking please tend to be I'm very strong believing life
+I wish I have your fat ted.
+
+## 讲解
+
+
+
+## 预告
+
+# Day 118 
+
+
 
 ## 讲解
 
@@ -213,102 +283,33 @@ Post it super sticky notes, hold on stronger and longer, but of course, remove c
 
 
 
-# Day 114 
+# Day 119 
 
 
 
 ## 讲解
 
 
-
-## 预告
-
-
-
-# Day 115 
-
-
-
-## 讲解
-
-
-
-## 预告
-
-Dr. Leonard Coldwell, a medical doctor, specialty on cancel treatment.
-
-# Day 66 Doctor
-
-86% of all  doctor visits and illness, statistically, are based on stress.
-
-## 讲解
-
-doctor visits, 其实就`看病`的意思，短语名词
-statistically, 这里作为副词，注意前后逗号
-
-## 预告
-
-introduction of the history of Mexico
-Hernando Cortes, a conquistador(征服者)
-
-# Day 67 Mexico
-
-History is amazing. **What took** thousands of years to develop as great civilization, took a flash to change. When Hernando Cortex  and 550 man landed on the **Gulf** of Mexico in 1519, it took only a couple of years to forever change the land that is now Mexico.
-
-## 讲解
-
-took a flash, 这里指时间很短暂, 对应的是took a lot of time.   (take -> require)
-
-## 预告
-
-Morse code,  telegraph
-
-# Day 68 Morse code
-
-Stop it!
-stop what?
-You’re talking about me in the mores code. But You know what? Jokes on you ‘cuz I know mores code. Ha!
-
-## 讲解
-
-You’re -> yer
-talking~about  中间a省略了
-
-## 预告
-
-Numbers
-
-# Day 69 Numbers
-
-American **E**lectric **P**ower is currently below ~~at~~ its **50**-day moving average **of** 40 dollar 28 cents(\$40.28) and below **its** 200-day moving average of 38 dollar 53 cents(\$38.53).
-
-## 讲解
-
-American Electric Power, 公司名
-这里讲的都是股价 stock price
-50-day moving average, 200-day MA, 股票股价的日均线、月均线；这里指50日移动均线和200日移动均线
-两处提到数字的前面有of，第一处连读很快过去了，第二处有停顿很清晰。即便第一处没听到，后边也应该回来修改。
 
 ## 预告
 
 birthday on February 29th  
 
-# Day 70 February 29th
+# Day 120 February 29th
 
-People born on February 29th on some previously **leap years** —— also known as “**leaplings**” —— they finally get to celebrate their real birthdays! (22 words)
+
 
 ## 讲解
 
-also known as, AKA
-get to  ->  are allowed to   ->  have the chance to
+
 
 ## 预告
 
 Google has a new privacy policy, it’s actually a advertisement. 
 
-# Day 71 Google
+# Day 121 Google
 
-You can ~~actually~~ **essentially** opt out ~~to~~ **of** the new policy by manually deleting your Google web history or by simply not signing in to sites like Gmail ~~or~~ **when** searching on Google
+
 
 ## 讲解
 
@@ -317,22 +318,19 @@ opt out, refuse
 
 ## 预告
 
-making money out of doing favorite things
 
-# Day 72 Chocolate
 
-Everyone who comes **into** our shop ~~to~~ tells us ~~that~~ “you have the perfect life”, ~~then~~ **and** we say, “yeah, you know what,  we do we really do.” They go hand in hand —— books ~~some~~ **and** chocolate.
+# Day 122 Chocolate
+
+
 
 ## 讲解
 
-comes~into
-they go hand in hand, 这里指的是后边books和chocolate是标配的意思；举例：匹萨和可乐go hand in hand
-
 ## 预告
 
-goals that you have successful at, called accomplishment.
 
-# Day 73
+
+# Day 123
 
 I have accomplished more in my life ~~that~~  **than** I**’ve** ever thought possible.
 
