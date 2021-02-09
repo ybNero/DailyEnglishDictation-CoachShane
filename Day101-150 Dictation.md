@@ -259,11 +259,23 @@ I don't blame you. I am not like those ~~so cold~~ **so-called** ~~fare-weather~
 
 # Day 117 
 
-Ted I just want to ask it, do you believe in the after life?
-Do I pass?
-Deep believe in the after life.
-generally speaking please tend to be I'm very strong believing life
-I wish I have your fat ted.
+Ted, I just want**ed** to ask ~~it~~ you; do you believe in ~~the~~ **an** afterlife?
+Do I ~~pass~~ **what**?
+~~Deep~~ **Do** believe in ~~the~~ **an** afterlife.
+Well, Dougal, generally speaking, ~~please~~ **priests** tend to ~~be~~ have a ~~I'm~~ very strong ~~believing~~ **belief in the afterlife**.
+**Boy,** I wish I ~~have~~ had your ~~fat~~ faith, Ted!
+
+## 讲解
+
+- priest
+
+## 预告
+
+enjoy the great outdoors, bicycling
+
+# Day 118  bicycling
+
+These young moutain-bikers are spending their afternoon racing on ~~a~~ **the** trails.
 
 ## 讲解
 
@@ -271,60 +283,56 @@ I wish I have your fat ted.
 
 ## 预告
 
-# Day 118 
+a guy who has country acent. he lives in the mountain.
 
+# Day 119  rainy day
 
+It's a rainy day today, so I think I might do something that**'s** ~~have need~~ **been needing** to be done for a while.
 
 ## 讲解
 
-
+- that's been needing to be done
 
 ## 预告
 
+prosthetic legs, blade solder
+hearing aids, put a chip into someone's head
 
+# Day 120 
 
-# Day 119 
-
-
+Well I guess I should remind you, if you are freaking out right now, that this hasn't happended yet.
 
 ## 讲解
-
-
 
 ## 预告
 
-birthday on February 29th  
+hair style, barber shop
 
-# Day 120 February 29th
+# Day 121 Haircut
 
-
+how can you wear a hat?
+I got a hair cut.
+Oh yeah? Can I see it?
+**Eh, there's nothing to see.**
+Come on! Let me see it.
+Forget it.
+Come on!
+~~Alright~~ All right...
 
 ## 讲解
-
-
 
 ## 预告
 
-Google has a new privacy policy, it’s actually a advertisement. 
+rainforest, Amazon
+trees are cut off for paper or raising pigs or something.
 
-# Day 121 Google
+# Day 122 Rainforest
 
-
-
-## 讲解
-
-essentially, basically
-opt out, refuse
-
-## 预告
-
-
-
-# Day 122 Chocolate
-
-
+The Amazon forest, which ~~blanked~~ **blankets** ~~a~~ 40% of **Brazil's**(巴西) territory, ~~it' s~~ **is** the home ~~for over~~ **to more than** ~~80,000~~ 18,000 speices of birds and several hundred~~s~~ speices of **mammals**. And more than ~~15,000~~ 1500 speices of **aquatic**(水栖动物) creatures inhabit~~ed~~ **its** countless miles of waterways.
 
 ## 讲解
+
+
 
 ## 预告
 
@@ -332,320 +340,142 @@ opt out, refuse
 
 # Day 123
 
-I have accomplished more in my life ~~that~~  **than** I**’ve** ever thought possible.
-
 ## 讲解
 
-than, 这里不是that, 其实还可以从前面的more去反推
+# Day 124 
 
-# Day 74 Child labor
 
-5.4 million children; Children who are  8,9 and 10 years of age who are being used to mined with their bare hands so you can text and play Angry birds. (33 words)
 
 ## 讲解
-
-mined with their bare hands, 用赤裸裸的手来挖矿
 
 ## 预告
 
-Seattle Seahawks
-
-# Day 75 Seahawks
-
-See you at the Seahawks’ 12k, 5k run or walk and Kids Dash April 1st. 
+# Day 125 
 
 ## 讲解
-
-(We’ll) see you at … 这里相当是介绍节目 
 
 ## 预告
 
-muffin,松糕  frosting, cupcake
-
-# Day 76 
-
-24-hour access to cupcakes? It’s a nightmare for dieters, but this **vending** concept is an advantage for Sprinkles when it comes to cupcake competition.
+# Day 126 
 
 ## 讲解
-
-Vending machine, 零售贩卖机
-vending concept, 零售概念
-Sprinkles, 这里是cupcake shop的名称
-
-## 预告
-
-Sahara desert 撒哈拉沙漠
-
-# Day 77 Desert 
-
-Next we enter the White Desert ~~we are~~ where from a distance the ~~white strom~~ **limestone** looks like snow and rock piles like icebergs.
-
-## 讲解
-
-from a distance, 表示从远处看
-limestone, 石灰岩
-
-## 预告
-
-Curb your Enthusiasm
-etiquette, 礼仪
-
-# Day 78 Etiquette
-
-Call Jeff and tell him about this.
-No, wait, wait, what time is it?
-It’s 10:20.
-10 o’clock is cut-offt time. You don’t ~~copy black to change~~ call poeple after 10:00.
-No no no. The cut-off time is 10:30.
-10:00. You don’t call ~~to~~ **after** 10 o’clock.
-No, it’s 10:30!
-
-## 讲解
-
-cut-off time, 营业截止时间
-
-## 预告
-
-Cartoon, MTV, Daria, feminist, 女权主义者
-a realist
-
-# Day 79 
-
-Stand ~~from~~ **firm** for ~~where~~ **what** you believe ~~then~~ **in** until and **un**less **logic** and experience prove you wrong. Remember, when the emperor looks naked, the emperor is naked. The truth ~~or~~ and a liar are not sort of same thing.
-
-## 讲解
-
-这里提到the emperor is nake是来自典故 The Emperor’s New Clothes
-believe~in, 这里连读导致听起来像believe then
-
-## 预告
-
-Spain product
-
-# Day 80 Spain
-
-Olives are the **gold** **in Andalucía**, Spain is the world’s biggest olive **oil** producer, **Andalucía** accounts for 80% **Spanish** oil.
-
-## 讲解
-
-Andalucía, famous olive plantation in Spain
-Olives~are 
-account for -> produce 在这里说Andalucía占了80%的西班牙橄榄油(产量), 即Andalucía生产了(produce)这么多橄榄油
 
 
 
 ## 预告
 
-Japan Doctor, Dr. Emoto, famous for his research on water and positive words.
-Another experiment on rice.
-
-# Day 81 Japanese doctor experiment
-
-Dr. Emoto has conducted an interesting experiment. He places rice into 3 glass **beakers** and cover it with water. And then every day **for** a month he said “thank you” to one **beakers**,  “you are a idiot” to the second and the third one he completely ignored.  (46 words)
+# Day 127 
 
 ## 讲解
 
-beaker, 烧杯
 
 
 ## 预告
 
-Dean Kaman, inventor, invent a water purification system
 
-# Day 82 Inventor
 
-You know, most people think that the world is getting worse... ~~at~~ **that** the life of **their** children ~~can~~ **is gonna** be less **than** they had, but the fact **of the matter** is, the world is getting better at an extraordinary rate.
+# Day 128 
+
+
 
 ## 讲解
-
-most~people, 这里t不发音
-the life~of their
-better~at~an~extraordinary rate
 
 ## 预告
 
-Washington DC, in the spring time, cherry tree
 
-# Day 83
 
-In ~~the~~ a city **full** of show**y** sights, these are more humble creations standing by until that **stretch in** March and April when it is time to blossom. （27 words)
+# Day 129 
 
 ## 讲解
-
-showy, 理解成fancy即可
-Washington monument, Obelisk, the White House...
-sites和sights的区分, sites是specific location, 比如construction sites, historical sites.
-stretch这里指的是a period of time, 文中即March和April之间
 
 ## 预告
 
-estate 
-
-# Day 84 
-
-Trying is having ~~an~~ the intention to fail. You gotta ~~scratch~~ **scrap** the word from your vocab. Say **you’re gonna** do it, and you will.
+# Day 130 
 
 ## 讲解
 
-having the intention  ->  wanting, 这里表达的意识是一直说trying是很难成功的，以后别再这样说了，扎扎实实去做吧！
-scrap, 丢弃
-gotta, got to
-gonna, going to
+
+
+
 
 ## 预告
 
-missile, dilemma
 
-# Day 85  Crux
 
-Well that, I think, ~~it~~ is a real ~~cracked~~ **crux** **of this** issue.
+# Day 131 
+
+
+## 预告
+
+# Day 132 
+
+
 
 ## 讲解
 
-well that, 口语中常见的衔接表达
-crux -> cross, the most important part
-the crux of the matter
+
+
+## 预告
+
+
+
+# Day 133
+
+
+
+## 讲解
+
+
+
+## 预告
+
+
+
+# Day 134 
+
+## 讲解
+
+
+
+## 预告
+
+
+
+# Day 135 
+
+
 
 ## 预告 
 
-James Cameron, The Titanic, a Movie director and an explorer.
-submarine, Mariana Trench 马纳亚纳海沟
 
 
-# Day 86 Exploration
 
-Look, ~~the~~ imagination feeds exploration. You have to imagine the possible before you can go and do it.
+# Day 136 
 
 ## 讲解
 
-Look, 这也是英文中常见的口语表达, 即“你看”,交流时的引入。但不想Listen那么严肃
+# Day 137 
 
-# Day 87 April Fool!!
 
-Go ahead. Yep,sure.
-There were a few ……
 
 ## 讲解
 
-这一期出的是类似一个快嘴的表演，还带英伦腔，后边基本没法听。但其实是个Shane老师出的愚人节玩笑。
-joke, prank
 
-这期又重新讲了S/N/L cancel d/t/th的发音问题 **cancellation matrix**
-in the(nuh) car, inter(neh)net
-帮助记忆这个cancellation规则：
-**S**he **N**ever **L**ie. **D**on't **t**rust **th**at.
 
 
 ## 预告
 
-Russian desert
 
-
-# Day 88 
-
-These are not the ~~dim~~ dunes of the Sahara. In fact, they are found beyond the **Arctic Circle** ~~and~~ **in** the permafrost of Russia's north.
-
-## 讲解
-dunes, 沙丘
-permafrost, 永久冻土, 永冻层
-
-## 预告
-
-April 4th, special day for homeless animals 
-stray mutt 
-
-# Day 89 
-
-April 4th, the day to ~~shut the fashion~~ **show compassion**, care and ~~astray~~ **act** for stray animals ~~are~~ all around the world!
+# Day 138 
 
 ## 讲解
 
-stray animal, 流浪动物
-show compassion, 表现同情，反义词是apathy,表示漠不关心
 
 ## 预告
 
-London Olympic
-if you can be Olympic athlete, which event would you like to compete in?
-
-# Day 90
-
-1896, (music)the first modern Olympic Games opened in Athens, Greece——land of the ancent games ~~for~~ ——with athletes from 14 countries.
 
 
-## 讲解
-
-这里有两个词的读音要注意，Athens，athlete
-
-## 预告
-
-A television commercial, 
-
-
-
-# Day 91 
-
-My bad. 
-Tell me you have good insurance. 
-Yep, I got "Allstates".
-Really?
-
-## 讲解
-
-重点看第二句, Tell me -> You had better, 你最好告诉我(你有一份好的保险)
-Allstate, 好事达保险
-
-## 预告
-
-Ryan Higa, Youtuber
-
-
-# Day 92 
-
-The point is, you should get to know a person first, then judge them. You should never judge a book by its cover. Judge **it** by the ~~among~~ amount of pages.
-
-## 讲解
-
-judge~it, 连读
-
-## 预告
-
-"Teen idol", great song, cherish
-
-
-# Day 93 
-
-I ~~have a~~ **had it in** ~~space~~ spades on both sides, it came really natural to me.
-
-## 讲解
-
-I had it in spades, **it** refers to musical, performing talent, in spades表示无疑地, definitely
-这里on both sides, 指的是他从父母双方都有遗传到优良的天赋/基因
-
-## 预告
-
-Tommy, guitar player
-
-# Day 94 
-
-
-It takes a lot of work. You have to word every day on it. And them ~~It's~~ that's not a downside. There isn't a downside, really.
-
-
-## 讲解
-
-downside, 缺点
-
-## 预告
-
-conversion on the phone, telemarketer
-
-# Day 95 
-
-Hello.
-Oh,gee, I can't talk right now. Why don't you give me your home number and I'll call you later.
-Oh I guess you don't want people calling you at home?
-Well, now ~~I let~~ you konw how I feel.
+# Day 139 
 
 ## 讲解
 
@@ -655,7 +485,79 @@ Well, now ~~I let~~ you konw how I feel.
 
 
 
-# Day 96
+# Day 140
+
+
+
+
+## 讲解
+
+
+
+## 预告
+
+
+
+
+
+# Day 141 
+
+
+
+## 讲解
+
+
+
+## 预告
+
+
+
+
+# Day 142 
+
+
+
+## 讲解
+
+
+
+## 预告
+
+
+# Day 143 
+
+## 讲解
+
+
+
+## 预告
+
+
+
+# Day 144 
+
+
+## 讲解
+
+
+
+## 预告
+
+
+
+# Day 145 
+
+
+
+## 讲解
+
+
+
+## 预告
+
+
+
+# Day 146
 
 
 
@@ -669,7 +571,7 @@ Well, now ~~I let~~ you konw how I feel.
 
 
 
-# Day 97 
+# Day 147 
 
 
 
@@ -683,7 +585,7 @@ Well, now ~~I let~~ you konw how I feel.
 
 
 
-# Day 98 
+# Day 148 
 
 
 
@@ -695,7 +597,7 @@ Well, now ~~I let~~ you konw how I feel.
 
 
 
-# Day 99 
+# Day 149 
 
 
 
@@ -705,7 +607,7 @@ Well, now ~~I let~~ you konw how I feel.
 
 ## 预告
 
-# Day 100 
+# Day 150 
 
 
 
