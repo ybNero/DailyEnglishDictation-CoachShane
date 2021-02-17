@@ -378,35 +378,50 @@ bullying, teasing,
 
 # Day 126 bullying
 
-## 讲解
-
 A ~~60~~ **68**-year-old grandmother ~~touted~~ taunted by 4 children on a school bus——all of ~~this record~~ it caught on tape.
 
+## 讲解
+
+- 68-year-old 和 68 years old 主要听year有没有s
+- taunted -> teased, verbally attack,insulted
+- caught on tape -> recorded
+
 ## 预告
 
-# Day 127 
+story about cars, nice new car, sporty sedan, 100% electric
+
+# Day 127  Tesla
+
+Tesla ~~said~~ **says** the price ~~ranged~~ **ranges** from just **under** 50,000 to **about** 100,000 dollors, depending on the battery size and options you chooes.
 
 ## 讲解
 
-
+- range from -> fluctuate, vary
 
 ## 预告
 
-
+fast food, the pictures of the food always look better than what they really looks like.
 
 # Day 128 
 
-
+One curious, 9-year-old girl ~~roll~~ **wrote** **McDonald's** with that ~~so they~~ burning question; Why ~~these~~ **does your** food look different ~~on~~ **in** the advertising than what's in the store?
 
 ## 讲解
+
+- wrote with, 这里我以为是直播采访，写的roll
 
 ## 预告
 
+respect
 
+# Day 129 respecting
 
-# Day 129 
+Respecting the ~~dinity~~ **dignity** of human being is giving that person the freedom to choose.
 
 ## 讲解
+
+- respect -> admire, appreciate, recognize
+- dignity -> merit,worthiness, improtance,honor
 
 ## 预告
 
