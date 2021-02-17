@@ -328,39 +328,59 @@ trees are cut off for paper or raising pigs or something.
 
 # Day 122 Rainforest
 
-The Amazon forest, which ~~blanked~~ **blankets** ~~a~~ 40% of **Brazil's**(巴西) territory, ~~it' s~~ **is** the home ~~for over~~ **to more than** ~~80,000~~ 18,000 speices of birds and several hundred~~s~~ speices of **mammals**. And more than ~~15,000~~ 1500 speices of **aquatic**(水栖动物) creatures inhabit~~ed~~ **its** countless miles of waterways.
+The Amazon Forest, which ~~blanked~~ **blankets** ~~a~~ 40% of **Brazil's**(巴西) territory, ~~it' s~~ **is** the home ~~for over~~ **to more than** ~~80,000~~ 1800(eighteen hundred) speices of birds and several hundred~~s~~ speices of **mammals**. And more than ~~15,000~~ 1500 speices of **aquatic**(水栖动物) creatures inhabit~~ed~~ **its** countless miles of waterways.
 
 ## 讲解
 
-
+- forest -> jungle
+- blankets -> covers
+- inhabit -> live in
 
 ## 预告
 
+This Sunday is the farther's day.
 
+Common gife for farther's day is tie.
 
-# Day 123
+Tom Cruise
+
+# Day 123 Farther
 
 ## 讲解
 
-# Day 124 
+Usually we just hang out, **you know**, **maybe  we'll go for a** ~~the other~~ family hike **or something**. I don't konw where, **you know...** we'll be in **Iceland** **that day so we'll see what that does**. we**'re** gonna ~~keep~~ **kick** back ~~in~~ **on** Sunday, so I don't know what the plan**s** **are**.
 
+## 预告
 
+great singer from Hawaii
+died for obesity at a young age
+
+# Day 124 fat singer
+
+He was about 600 pounds at that point, ~~647~~ **640 or so** pounds. He got down to abount ~~481~~ 480 **at one point**. And he died at 1000 pounds. OMG.
 
 ## 讲解
 
 ## 预告
 
-# Day 125 
+funny Youtube channel,
+free-pray food.
+
+# Day 125 free-pray food
+
+~~Free~~ **Pre**-blessed food! we pray~~ed~~ for it so you don't have to!
 
 ## 讲解
 
 ## 预告
 
-# Day 126 
+bullying, teasing,
+
+# Day 126 bullying
 
 ## 讲解
 
-
+A ~~60~~ **68**-year-old grandmother ~~touted~~ taunted by 4 children on a school bus——all of ~~this record~~ it caught on tape.
 
 ## 预告
 
@@ -613,4 +633,4 @@ The Amazon forest, which ~~blanked~~ **blankets** ~~a~~ 40% of **Brazil's**(巴�
 
 ## 讲解
 
-
+ 
